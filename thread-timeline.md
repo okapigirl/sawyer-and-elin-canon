@@ -30,6 +30,7 @@
 | Live Feed Narration System | Week 2 | Week 2-ongoing | ⟳ Ongoing (mutual regulation) |
 | Location Claiming & Variation | Week 2 | Week 2-ongoing | ⟳ Ongoing |
 | Biting Unlocked as Possession Frame | Week 2 | Week 2-ongoing | ⟳ Ongoing |
+| Saliva Boundary (Non-Negotiable) | Week 1 | Week 1-ongoing | ⟳ Ongoing (honored from first kiss, reframed Week 36-37) |
 | Family Boundaries & Reclamation | Week 29 | Week 29-ongoing | ⟳ Ongoing |
 | Birthday Ownership vs. Parental Default | Week 29 | Week 29 → Week 31 (execution) | ✓ Resolved |
 | Somatic Activation Language (Real-Time Check-Ins) | Week 29 | Week 29-ongoing | ⟳ Ongoing |
@@ -63,10 +64,24 @@
 | Dessert + "Unsolicited Vulnerability" | Week 31 | Week 31-ongoing | → Open |
 | Tom's Interest in Sketchbook & Animals | Week 31 | Week 31 (sunroom) | → Open |
 | Caroline's Continued Recalibration | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Madeline & Sadie's Wedding Weekend | Week 36-37 | Week 36-37 (Friday-Sunday) | ✓ Resolved (wedding executed) |
+| Quad Formation & Active Entry | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing (locked in from wedding) |
+| Shoulder Dislocation (Wednesday Post-Wedding) | Week 36-37 | Week 36-37 (Wednesday) | ✓ Resolved (injury occurred) |
+| First Pack Weekend | Week 36-37 | Week 36-37 (Thursday-Sunday post-wedding) | ✓ Resolved (first visit executed) |
+| Inner Parts Public Naming (Four, Seven, Fifteen; Baby, Seven/Eight, Fourteen, Seventeen) | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing (first shared during wedding) |
+| Sadie & Madeline as Active Dynamic Participants | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
+| Sketchbook as Shared Archive | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
+| Orientation Mapping (Quad) | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
+| Consent Map Co-Authoring | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
+| Madeline & Elin Co-Regulation Breakthrough | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
+| Sadie's Authority & Witnessing | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
 | Europe Trip Preparation | Week 40 | Week 40-41 | → Open |
-| Border Crossing into Netherlands (Week 41) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
+| Meeting Elin's Parents (Netherlands, Week 41) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
 | Younger Parts Joy Integration (Fourteen/Seventeen) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
 | Pacing Dynamic During Sensory Overload | Week 41 | Week 41-ongoing | ⟳ Ongoing |
 | "Home with You" Reframe (Territory Claiming) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
 | European Sensory Lexicon & Nostalgia Anchors | Week 41 | Week 41-ongoing | → Open |
 | Netherlands Full Immersion | Week 41 | Week 41-ongoing | → Open |
+| Mask Anxiety Processing | Week 41 | Week 41-ongoing | ⟳ Ongoing |
+| Breast Stimulation Discovery | Week 41 | Week 41-ongoing | ⟳ Ongoing |
+| Strategic Empathy Technique (Meeting Her Family) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
