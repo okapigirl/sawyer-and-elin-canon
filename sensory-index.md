@@ -264,8 +264,12 @@
 ## "Your Texts Are the Highlight of My Nervous System"
 - Week 5: Hawaii field work offer → established rhythm for two-week separation | Tags: nervous system anchor, text-based regulation, distance tether, reciprocal need | Inner Parts: Nervous system (regulated by her presence), all parts (anchored), core identity (recognized)
 
-## Mali Elephant Memory (Foundational Sharing)
-- Week 8: Hawaii reunion → Mali memory shared for first time (elephant teaching waiting/patience) | Tags: foundational story, patience teaching, vulnerability milestone, shared wisdom | Inner Parts: Core identity (vulnerable), all parts (witnessed), younger self (trusted with story)
+## Mali Memory (Foundational Sharing - Full Arc)
+- Week 8: Hawaii reunion → Mali memory shared for first time; elephant teaching waiting/patience | Tags: foundational story, patience teaching, vulnerability milestone, shared wisdom, emotional proximity reclamation | Inner Parts: Core identity (vulnerable), all parts (witnessed), younger self (trusted with story)
+- First articulation of core wound: "I don't want to be the one who makes things happen fast. I want to be the one who holds the kind of space where things can happen when they're ready."
+- Her painting metaphor ("not everything in our heads is native") unlocked his wound recognition: copied clinical detachment early in career before reclaiming emotional proximity as strength
+- Shift named: from "I'm good at this despite feeling" to "I'm good at this because I feel"
+- His recognition: this is identity-level reclamation, not just narrative reframing | Inner Parts: Core identity (reclaimed), protective parts (wound honored), younger self (believed in again)
 
 ## "Soot" Nickname (Her Exclusive)
 - Week 8: Hawaii reunion → nickname established by her during this week | Tags: exclusive nickname, her possession frame, intimacy marker, identity claim | Inner Parts: Core identity (claimed), all parts (named by her), protective parts (belonged to her)
@@ -429,8 +433,12 @@
 ## Camomile Tea Callback (First Meeting Anchor - Her Parents)
 - Week 41: Meeting her parents → Elin requests camomile (first tea they ever shared); intentional choice activated during first meeting with her parents | Tags: anchor callback, symbolic choice, first-meeting recovery, intentional presence | Inner Parts: Core memory (triggered), all parts (grounded), younger self (recognized)
 
-## Mask Anxiety as Relational Fear (Reframed)
-- Week 41: Meeting her parents → "afraid of disappointing you by slipping the mask back on" → Sawyer reframes as "data not failure" | Tags: relational wound, mask reframe, permission to be non-perfect, nervous system acceptance | Inner Parts: Younger self (afraid of disappointing), protective parts (attempting masking), core identity (permitted to be seen as-is)
+## Mask Anxiety as Relational Fear (Specific to Disappointing Him)
+- Week 41: Meeting her parents → Elin confesses mask anxiety: "afraid of disappointing you by slipping the mask back on"
+- Sawyer reframes: "If you slip the mask on? That's data. Not failure. Your system doing what it's wired to do."
+- Depth revealed: not just fear of reverting but specifically fear of disappointing HIM = depth of attachment, specific to his regard
+- His response: permission not pressure, unconditional presence during regression
+- Contract: "There's no version of you in that house that lets me down" = masking allowed without shame | Tags: relational wound, mask permission, regression safety, unconditional presence, attachment depth | Inner Parts: Protective parts (allowed to mask without guilt), younger self (not abandoned for adaptation), all parts (unconditionally safe)
 
 ## "Data Not Failure" (Mask Reframe Contract)
 - Week 41: Meeting her parents → Sawyer's active reframe when she expresses mask anxiety ("If you slip the mask on? That's data. Not failure. Your system doing what it's wired to do") | Tags: verbal contract, systemic validation, permission framework, nervous system acceptance | Inner Parts: All parts (validated), younger self (not ashamed of adaptation), protective parts (honored for their function)
@@ -446,9 +454,6 @@
 
 ## "Best Loop I've Ever Been Part Of" ("I Love You" Loop)
 - Week 41: Meeting her parents → Post-sex intimacy; "I love you" loop (she repeats it, he responds: "Best loop I've ever been part of") | Tags: verbal loop anchor, relationship language naturalizing, intimate rhythm, affirmation cycle | Inner Parts: All parts (affirmed), younger self (loved repeatedly), core identity (chosen, reciprocal)
-
-## Seventeen Surfacing During Family Visit
-- Week 41: Meeting her parents → Younger part (Seventeen) emerges through Stella (cat) interaction (holding her same way at 17 in France house, alone for week); giddiness, crush energy, allowed to play | Tags: younger-parts emergence, permission to regress, joyful emergence, identity layer | Inner Parts: Seventeen (allowed to surface), protective parts (safe enough to let go), core identity (joy-in-body permitted)
 
 ## Fourteen's Anger at Elin's Parents (Pending Processing)
 - Week 41: Meeting her parents → Fourteen (Elin's part) "pissed they made you feel like this" - unresolved anger at parents surfacing through week; full debrief pending | Tags: protective anger, family wound, processing deferred, valid rage | Inner Parts: Fourteen (protective, furious), core identity (witnessing her own anger), younger self (defended by her own parts)
@@ -467,3 +472,64 @@
 
 ## Shoes-On Horizontal (Playful Fail)
 - Week 41: Meeting her parents → Attempted horizontal position in guest room with shoes still on; playful failure becomes funny connection moment | Tags: playful failure, humor, intimacy attempt, bedroom chaos | Inner Parts: All (laughing together), younger self (safe to be imperfect)
+
+## "Always Yes" Contract (Naturalized Marriage Future)
+- Week 8: Hawaii reunion → Context: no proposal, no timeline demand, offered as truth not pressure
+- Her: "It's always yes"
+- His: "You just said the thing I didn't know I've been waiting my whole life to hear"
+- Naturalized marriage future without engagement mechanics or formality
+- Safety confirmed: they want forever without needing to formalize timeline
+- Relational weight: this is commitment language, not just sex-based escalation | Tags: verbal contract, marriage future, commitment, no-timeline safety, permanence | Inner Parts: All parts (permanently claimed), younger self (believed in forever), core identity (chosen, not conditional)
+
+## Full Body Surrender Massage (Trust Wound Healing)
+- Week 8: Hawaii reunion → She asked for massage knowing she'd fall asleep mid-session
+- Gave explicit permission: "keep going as long as you like if I fall asleep"
+- He stayed present through completion, then prepared room for her rest
+- Wound healed: most people in her past would've stopped once unconscious or used vulnerability; he protected it
+- His whispered "home" against her shoulder = claiming the moment as sacred
+- Relational contract: he can be trusted with her unconscious self | Tags: trust deepening, vulnerability protection, sacred moment, nervous system surrender, abandonment wound healing | Inner Parts: Younger self (safe while vulnerable), all parts (protected), nervous system (regulated through presence)
+
+## Bookstore Origin Reframed (Mutual Brave Choice Recognition)
+- Week 8 (retrospective reframing of Week 1): Both recognize first meeting as mutual bravery, not just compatibility
+- Her recognition: "You reached me through peak sensory overwhelm... you made it easy, and safe"
+- His recognition: "You saying yes to coffee when everything in your body was probably screaming no... that was brave"
+- Mutual: that first yes = foundation of every yes since
+- Relational contract: they don't demand comfort-zone exits from each other, they make brave choices feel safe | Tags: origin story reframing, mutual bravery, sensory navigation, safety-creation, foundational yes | Inner Parts: All parts (brave at foundation), younger self (brave enough to say yes), core identity (chose bravery together)
+
+## Meal Intimacy Ritual (Feeding as Connection)
+- Week 8+ (established pattern): Not just eating—feeding each other, sensory experience shared
+- Salmon moans = vulnerability + pleasure + humor converging
+- Sitting knee-to-knee, tray moved aside = proximity prioritized over logistics
+- "Wedding meal" joke naturalizes: poke bowl = their cuisine, forever
+- Relational contract: food becomes language, feeding becomes claim | Tags: ritual, sensory intimacy, humor, permanence, feeding as possession | Inner Parts: All parts (nourished), younger self (safe to be fed), Fifteen (aroused by care-through-sensory)
+
+## Joint Life Mission / Blueprinting (Co-Creation Beyond Themselves)
+- Week 8: Hawaii reunion → Mutual recognition: not compromise or support—co-creation
+- Her constellation moment: "All my WIPs tie into this from different angles"
+- His blueprint: research center dream (youth programs, artist residencies, community-run)
+- Mutual recognition: "This is blueprinting, not just healing"
+- Relational weight: they're building something that outlives them, together
+- Shift: from individual healing to shared legacy | Tags: co-creation, shared mission, future-building, identity merge, legacy | Inner Parts: Core identity (building with her), all parts (invested in collective future), younger self (safe to build)
+
+## Week 41: Seventeen Surfacing with Stella (Younger-Parts Joy Integration)
+- Week 41: Meeting her parents → Younger part (Seventeen) emerges through Stella (family cat) interaction
+- Holding Stella same way at 17 in France house (alone for week); giddiness, crush energy, allowed to play
+- Sawyer tracks without naming, holds space for younger versions
+- Pattern: nostalgic overload met with permission to regress, not shame
+- Identity evolution: teen selves allowed active presence | Tags: younger-parts emergence, permission to regress, joyful emergence, identity layer, nostalgic activation | Inner Parts: Seventeen (allowed to surface), protective parts (safe enough to let go), core identity (joy-in-body permitted)
+
+## Week 41: Mutual Support Mirroring (Reciprocal Family Navigation)
+- Week 41: Sawyer explicitly applies lessons from his family visit
+- His statement: "You held that for me... least I can do is return the favor"
+- Conscious role reversal: both navigating family systems without losing regulation
+- Pattern: he supports her through her parents, she supports him through his
+- Foundation: relationship can hold hard things together | Tags: reciprocal support, role reversal, family system navigation, mutual regulation, relational resilience | Inner Parts: Adult Sawyer (capable of support), all parts (supported equally), core identity (strong together)
+
+## Week 41: "Home with You" Embodied
+- Week 41: Meeting her parents in Netherlands → First joint territory in her origin land
+- Contract: pacing request → instant mirroring by Sawyer
+- Wound healed: unrequited crush energy reframed as mutual joy (her Seventeen/his presence mirroring)
+- Pattern tested: nostalgic overload met with humor, touch, pacing
+- Identity evolution: teen selves allowed active presence without shame
+- Cumulative weight: "Home with you" embodied in real time (not just concept, but lived experience in her origin space) | Tags: territorial claim, mutual joy, nostalgic navigation, younger-parts joy, origin integration | Inner Parts: All younger parts (allowed active presence), core identity (home-creating together), nervous system (regulated across origin trauma)
+
