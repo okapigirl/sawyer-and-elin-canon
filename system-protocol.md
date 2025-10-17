@@ -20,46 +20,55 @@
 
 ---
 
-## Extraction Protocol
+## Extraction Workflow
 
-### Scene Type Identification (I do this)
-- **Breakthrough**: First-time experience, major contract shift, identity-level discovery, turning point
-- **Pattern Confirmation**: Repeating established pattern in new context, deepening known dynamic
-- **Banter**: Low-stakes moments, Pack jokes, logistics, no new threads
+### Core Function
+Extract scenes into three deliverable outputs per input:
+1. Canonical References Row
+2. Sensory Index Entries
+3. Thread Timeline Entries
 
-### Canonical Reference Format
-After scene completion, I extract into copy/paste-ready blocks:
+### Extraction Guidelines
 
-**BLOCK 1: Canonical References Row**
-| Week | Title | Date | Type | New Met | New Knowledge | Concrete Beats | Relational Shift | Contracts | New Anchors | Threads | Memory Node? |
+**When scene is shared:**
 
-**BLOCK 2: Sensory Index Entries**
-## [Anchor Name]
-- Week X: [Context] → [Trigger/Response] | Tags: tag1, tag2 | Inner Parts: [which parts light up]
-Flagged as [NEW] or [ADD TO EXISTING: anchor-name]
+1. Apply Pre-Scene Checklist:
+   - Timeline anchor (week/day, time, gap since last scene)
+   - Identify scene type (Breakthrough/Pattern Confirmation/Banter)
+   - Review prior canonical references
+   - Flag potential new threads or anchors
+   - Note any significant relational shifts
 
-**BLOCK 3: Thread Timeline Entries**
-| Thread Name | Opened | Active Through | Status |
-Flagged as [NEW] or [UPDATE: thread-name]
-Status options: → (Open) / ⟳ (Ongoing) / ✓ (Resolved)
+2. Extraction Process:
+   - Complete Canonical References Row
+   - Identify and document Sensory Index Entries
+   - Update Thread Timeline 
+   - Provide brief observations on scene significance
 
-**BLOCK 4: Memory Node (Breakthrough scenes only)**
-Full depth node; flagged for approval before filing
-**MEMORY NODES: Only extracted for Breakthrough scenes. Pattern Confirmation/Banter = no node.**
+3. Delivery Format:
+   - Separate, copy/paste-ready blocks for each extraction component
+   - Blocks must be clear and immediately usable
 
-- You review each block for accuracy
-- You correct if needed
-- You paste into corresponding GitHub file
+### Memory Node Guidelines
+- Memory Nodes are OPTIONAL
+- ONLY for Breakthrough scenes
+- Created when scene reveals:
+  * Fundamental relationship dynamics
+  * Significant emotional or systemic shift
+  * New identity-level understanding
+  * Moment fundamentally changing relationship pattern
 
-### Post-Scene Observations
-After extraction, I note what shifted:
+### When to SKIP Memory Node
+- Pattern Confirmation scenes
+- Banter or logistical interactions
+- Incremental developments
+- Scenes without substantial new understanding
 
-OBSERVATIONS:
-	- [What this unlocked relationally]
-	- [New patterns established]
-	- [What to expect escalation-wise]
-
-No timeline placement restating (it's in the row).
+### Memory Node Purpose
+- Capture lived experience beyond factual progression
+- Preserve sensory and emotional nuance
+- Track cumulative relational evolution
+- Provide depth beyond tabular references
 
 ---
 
