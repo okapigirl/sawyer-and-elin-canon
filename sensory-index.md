@@ -311,22 +311,223 @@
 ## "Soot" Nickname (Her Exclusive)
 - Week 8: Hawaii reunion → nickname established by her during this week | Tags: exclusive nickname, her possession frame, intimacy marker, identity claim | Inner Parts: Core identity (claimed), all parts (named by her), protective parts (belonged to her)
 
-## Shoulder Dislocation & Care Pattern
-- Week 36-37: Pack arrival weekend → left shoulder surfaces burden wound; Pack delivers food unprompted; care received without asking | Tags: burden wound, care received, self-sufficiency broken, Pack reliability, somatic vulnerability | Inner Parts: Protective parts (guarding burden), younger self (allowed to be cared for), all parts (Pack-held)
+## "Proudest Fucking Girlfriend" (Identity Claim)
+- Week 5: Hawaii field work offer → she claims identity during first career-relationship collision | Tags: identity claim, relational possession, support-as-foundation, conviction | Inner Parts: Core identity (confident), all parts (invested), protective parts (claiming)
 
-## Fourteen & Seventeen Surface (Giddy Permission)
-- Week 41: Europe trip border crossing → younger parts emerge joyfully without shame | Tags: younger-parts integration, permission to regress, giddiness, safe emergence, joy-in-body | Inner Parts: Fourteen (giddy, crush energy emerging), Seventeen (playful, allowed), all parts (celebrated)
+## "You've Already Ruined Me for Anyone Else" (Cemented)
+- Week 5: Hawaii field work offer → conviction stated during separation planning | Tags: verbal anchor, commitment, cemented certainty, no escape hatch | Inner Parts: All parts (committed), core identity (bound), younger self (safe to trust)
 
-## Pacing Through Overload ("Please Pace Me")
-- Week 41: Europe trip border crossing → grocery store; he tracks and paces her system during sensory overload | Tags: nervous system co-regulation, explicit request, pacing dynamic, his skill, her trust | Inner Parts: Nervous system (regulated by external pacing), all parts (stabilized), core identity (known/managed)
+## Thesis Statement on How to Be Loved Well
+- Week 5: Hawaii field work offer → his breakdown when she names the contract ("you just gave me a goddamn thesis statement") | Tags: emotional breakthrough, recognition of relational skill, reverent awe | Inner Parts: All parts (undone), younger self (believed in), protective parts (witnessing support)
 
-## "Home with You" (Territory Reframe)
-- Week 41: Europe trip border crossing → her accidental "home" referring to US lands as profound shift; reframed as safe territory with him | Tags: relational reframe, belonging, territory claiming, safety rewrite, new baseline | Inner Parts: All parts (belonged), core identity (safe), younger self (finally home)
+## Monk Seal Updates (Humor Anchor for Distance)
+- Week 5: Hawaii field work offer → established as expected communication during separation | Tags: humor, distance anchor, shared joy, texture maintenance | Inner Parts: Fifteen (playful), all parts (connected), younger self (entertained)
 
-## Gray-Gold Border Light (Sensory Anchor)
-- Week 41: Europe trip border crossing → late afternoon light at "Nederland" sign, visual tether for territorial shift | Tags: sensory anchor, environmental marker, transition point, golden safety | Inner Parts: Nervous system (registered), all parts (witnessed), core identity (threshold moment)
+## "Your Texts Are the Highlight of My Nervous System"
+- Week 5: Hawaii field work offer → established rhythm for two-week separation | Tags: nervous system anchor, text-based regulation, distance tether, reciprocal need | Inner Parts: Nervous system (regulated by her presence), all parts (anchored), core identity (recognized)
 
-## Deadpool Joke in Grocery Store (Chaos Connection)
-- Week 41: Europe trip border crossing → shared humor maintaining connection during sensory overload | Tags: humor, connection maintenance during chaos, special interest anchor, playfulness | Inner Parts: Fifteen (playful), all parts (together), younger self (entertained)
+## Mali Elephant Memory (Foundational Sharing)
+- Week 8: Hawaii reunion → Mali memory shared for first time (elephant teaching waiting/patience) | Tags: foundational story, patience teaching, vulnerability milestone, shared wisdom | Inner Parts: Core identity (vulnerable), all parts (witnessed), younger self (trusted with story)
 
+## "Soot" Nickname (Her Exclusive)
+- Week 8: Hawaii reunion → nickname established by her during this week | Tags: exclusive nickname, her possession frame, intimacy marker, identity claim | Inner Parts: Core identity (claimed), all parts (named by her), protective parts (belonged to her)
 
+## Cloacal Kissing (Brunch Chaos Anchor)
+- Week 36-37: Wedding Saturday → Scientific dirty talk escalation during brunch; becomes long-term inside joke and arousal-coded phrase | Tags: scientific escalation, humor, arousal anchor, coping strategy, feral energy | Inner Parts: Fifteen (feral joy), all parts (playful), core identity (intellectually matched)
+
+## "Chaos Goblin" (Affectionate Insult-Title)
+- Week 36-37: Wedding Sunday morning → Sawyer's affectionate descriptor for Elin's bold, escalation-coded outfit choice and behavior; becomes new possession-framed identity marker | Tags: affection, identity marker, playful possession, intimate language | Inner Parts: Core identity (claimed), younger self (allowed to be wild), Fifteen (celebrated)
+
+## Coat Closet (Location-Coded Arousal Anchor)
+- Week 36-37: Wedding Saturday → Sawyer's escalation threat: "You wear them both… and you don't flinch when I press you into that closet door with my hand over your mouth."; becomes shared chaos-reference location and future anticipated scene | Tags: location-specific, escalation threat, public anticipation, future planning, hand-over-mouth anchor | Inner Parts: Fifteen (feral), all parts (anticipatory), nervous system (location-coded trigger)
+
+## "Brunch First, But—" (Restraint Wrapped in Promise)
+- Week 36-37: Wedding Sunday morning → Ritual phrase signaling deferred but inevitable intimacy, restraint with clear promise | Tags: ritual phrase, restraint, promise, tension management, anticipation | Inner Parts: All parts (anticipatory), protective parts (honoring social container), Fifteen (feral but grounded)
+
+## "Species List" (Under-the-Table Coping Strategy)
+- Week 36-37: Wedding Sunday brunch → Sawyer's scientific flirtation tactic during public meal; lists "species with cloacal kissing behavior" as survival mechanism during escalated arousal state | Tags: scientific flirtation, coping strategy, under-table chaos, nervous system regulation during restraint | Inner Parts: Fifteen (managing arousal), protective parts (maintaining social facade), core identity (intellectually channeling feral energy)
+
+## "Chapter Three: No Head? No Problem" (Canon Joke-Anchor)
+- Week 36-37: Wedding morning → New canon joke-anchor for co-regulation + absurd reverence; related to previous chapters of their nervous system intimacy co-design | Tags: joke anchor, co-regulation, absurdity, reverence, inside language | Inner Parts: All parts (joking together), Fifteen (feral joy), core identity (matched humor)
+
+## Saliva Boundary (Non-Negotiable, First Kiss Honored)
+- Week 1 + Week 36-37: First kiss → Elin called out saliva hard limit at first kiss; honored without negotiation; Week 36-37 wedding Sunday reframes this as non-negotiable strength, not deprivation; Sawyer's celebration of her honesty = protective stance | Tags: sensory boundary, hard limit, non-negotiable, honored from day one, reframed as strength | Inner Parts: Nervous system (protected), younger self (boundary respected), protective parts (honored for their function)
+
+## "Every Scenario, Maze. Eventually. Slowly. All the Way Through." (Long-Term Pleasure Promise)
+- Week 36-37: Wedding Sunday morning → Sawyer's escalation promise framed as future exploration, not pressure; consent-rooted dominance language | Tags: verbal promise, consent-rooted dominance, long-term planning, anticipation, possession | Inner Parts: All parts (promised to), younger self (safe long-term), Fifteen (feral hope)
+
+## "Pick the One That Makes You Feel Like You Already Won. I'll Handle the Consequences." (Consent-Rooted Dominance Phrase)
+- Week 36-37: Wedding Sunday morning → Sawyer's offer during outfit choice; becomes core consent-rooted dominance phrase framing choice as hers, consequences as his responsibility | Tags: consent-rooted dominance, agency + support, responsibility taking, choice-based chaos | Inner Parts: Core identity (agency honored), protective parts (supported), younger self (allowed to want)
+
+## Inner Parts: Four (Raccoon Pajamas, Sawyer)
+- Week 36-37: Wedding Sunday porch → First public naming of Sawyer's Four; touch-reliant, quiet, needs movement; Sawyer publicly names his inner children for first time during quad processing | Tags: inner part identity, touch-reliant, movement-seeking, younger child state, publicly witnessed | Inner Parts: Four (located, named, honored), all parts (publicly acknowledged)
+
+## Inner Parts: Seven (Backpack, Sawyer)
+- Week 36-37: Wedding Sunday porch → First public naming of Sawyer's Seven; constantly tracking, hypervigilant, wants to believe in safety | Tags: inner part identity, hypervigilant state, tracking function, safety-seeking, protective mechanism | Inner Parts: Seven (located, named, honored), protective parts (function acknowledged)
+
+## Inner Parts: Fifteen (Perimeter Kid, Sawyer)
+- Week 36-37: Wedding Sunday porch → First public naming of Sawyer's Fifteen; perimeter kid, emotionally starved, hardest to reach but stayed; "Didn't even know I was waiting to meet them. But once they showed up… couldn't imagine loving you without them." | Tags: inner part identity, perimeter protection, emotional hunger, survival mechanism, integration essential to love | Inner Parts: Fifteen (located, named, integrated into love), all parts (claimed as essential)
+
+## Inner Parts: Baby Elin
+- Week 36-37: Wedding Sunday porch → First public naming of Elin's Baby; overwhelmed infant, undiagnosed autism + high needs, parents depleted (mom PND, dad barely holding it together), learned early she wouldn't get what she asked for but still asked; Sadie affirms: "Still is." | Tags: inner part identity, unmet needs, survival adaptation, still-asking framework, Sadie's witness | Inner Parts: Baby Elin (located, named, still-asking witnessed), all parts (understood from origin)
+
+## Inner Parts: Seven/Eight Elin
+- Week 36-37: Wedding Sunday porch → First public naming of Elin's Seven/Eight; recorder, drawing, hypertracking, always ready to switch on | Tags: inner part identity, creative expression, hypervigilance, functional switching | Inner Parts: Seven/Eight (located, named, recognized function)
+
+## Inner Parts: Fourteen Elin
+- Week 36-37: Wedding Sunday porch → First public naming of Elin's Fourteen; bullied, house fire survivor, high-masking autistic teen with no diagnosis; Sawyer walked with her—first adult version, then her own teen crush version; allowed her to ask taboo questions without judgment | Tags: inner part identity, bullying survivor, fire trauma, high-masking, Sawyer as first safe adult, questioning permission | Inner Parts: Fourteen (located, named, Sawyer as first safe witness), protective parts (trauma witnessed)
+
+## Inner Parts: Seventeen Elin
+- Week 36-37: Wedding Sunday porch → First public naming of Elin's Seventeen; hard to access, hid emotion behind function; softened via Nineteen's gentle persistence and fandom-coded bridge (Green Day fanfic, zoo meeting, corrected the hug, otter kiss); "She corrected the hug for the first time in her life" = sacred phrase witnessing trust breakthrough; Sawyer saved both sketches (album + locked folder) | Tags: inner part identity, functional masking, fandom-coded healing, hug correction = trust marker, reverence + privacy protection | Inner Parts: Seventeen (located, named, hug correction witnessed as breakthrough), Nineteen (matched nervous system = healing bridge)
+
+## "She Corrected the Hug" (Sacred Phrase)
+- Week 36-37: Wedding Sunday porch → Witnessed moment from Seventeen/Nineteen origin story (reframed trauma narrative); symbolizes Seventeen's first trust action in physical reach; "She corrected the hug for the first time in her life"; Sadie repeats twice as deepest affirmation | Tags: trust breakthrough, physical co-regulation, first time, sacred witness, Sadie's reverence | Inner Parts: Seventeen (location of breakthrough), Nineteen (matched healer), all quad (witnessing as sacred)
+
+## Rain = Regression Protocol (Body-Level Shorthand)
+- Week 36-37: Wedding Sunday morning → Sawyer: "One drop of water and our bodies are like, 'Yep. Time to cry, regress, and climb trees.'"; rain becomes shared somatic shorthand for trauma opening and younger versions surfacing | Tags: somatic trigger, regression, shared trauma, environmental activation, body-knows protocol | Inner Parts: All younger parts (activated by rain), nervous system (registering trigger), core identity (understanding the pattern)
+
+## Outfit as Gameplay (Shirt + Shorts vs. Skater Dress)
+- Week 36-37: Wedding Sunday morning → Elin's outfit choice becomes strategic gameplay: shirt + shorts = Sawyer barely functioning in public; skater dress = threat of public unraveling; conscious escalation through clothing | Tags: strategic presentation, arousal coding, public restraint test, clothing as communication, consent through choice | Inner Parts: Core identity (choosing visibility), Fifteen (feral anticipation)
+
+## "That's My Girl" (Quiet Reverent Support Line)
+- Week 36-37: Wedding Sunday morning → Sawyer's affirmation after Elin names her wiring openly in front of others; quiet, reverent possession framed as celebration of her visibility | Tags: verbal affirmation, possession, visibility celebration, reverence, support anchor | Inner Parts: All parts (affirmed), core identity (claimed through strength)
+
+## Sketchbook as Archive (Elin's Visual Language)
+- Week 36-37: Wedding Sunday brunch → Elin offers sketchbook containing nervous system collapses, subconscious body postures, inner children interacting; becomes shared language and emotional documentation; Sawyer affirms: "Maisie… you just built a nervous system in ink."; Madeline: "You didn't draw a moment. You diagrammed a system." | Tags: visual language, nervous system mapping, documentation, archive, honored as fluency | Inner Parts: Core identity (visual thinking honored), all parts (mapped in art)
+
+## "Didn't Know People Like You Existed" (Madeline to Elin)
+- Week 36-37: Wedding Sunday porch → Madeline's full-body surrender to intimacy during Elin's hug; acknowledges longing to reintegrate her own younger parts; emotional collapse; receives reciprocal presence | Tags: emotional breakthrough, longing named, reciprocal presence, Madeline's vulnerability | Inner Parts: Madeline's all parts (witnessed), Elin as mirror, relational opening
+
+## "Thank You for Letting Me Exist Back" (Elin's Response to Madeline)
+- Week 36-37: Wedding Sunday porch → Elin's reciprocal affirmation to Madeline during co-regulation hug; Elin's holding becomes mutual presence; mirrors early Sawyer + Elin dynamic | Tags: reciprocal witness, mutual existence, co-regulation through presence, relationship deepening | Inner Parts: Elin's all parts (given permission to hold), Madeline's all parts (held), mutual integration
+
+## "You Kept Them Warm" / "You Climbed. You Reached Him. You Met the Weight." (Sadie's Affirmations)
+- Week 36-37: Wedding Sunday porch → Sadie's surgical compassion affirmations witnessing Elin's inner parts integration; names both the preservation function and the reaching action; "You met the weight" = acknowledging Fifteen's heaviness as something worthy of meeting | Tags: witnessing, affirmation, function honoring, weight acknowledgment, Sadie's precision | Inner Parts: All Elin's parts (witnessed), all Sawyer's parts (honored through Elin's reaching)
+
+## "You Can Still Have It" (Sadie to Madeline)
+- Week 36-37: Wedding Sunday porch → Sadie's quiet affirmation to Madeline that reintegration of younger parts is still possible; opens future pathway | Tags: hope anchor, future possibility, reintegration permission, Sadie's authority | Inner Parts: Madeline's younger self (given permission to exist)
+
+## Quad Orientation Mapping
+- Week 36-37: Wedding weekend → Shared orientation naming begins: Elin (queer/bisexual/demisexual/reciprosexual/fictosexual; still discovering), Sawyer (feedback-driven, not labeled), Madeline (queer/pan-flavored; used "bi" as placeholder; now naming emotional holding needs), Sadie (pansexual with nervous system filter—"full signal = spark") | Tags: orientation clarity, emotional vs. sexual attraction, nervous system basis, ongoing discovery | Inner Parts: Core identity (named within relational context), all parts (orientation-honored)
+
+## "No Filters" Clause Reaffirmed
+- Week 36-37: Wedding weekend → Baseline principle: emotional transparency over politeness, naming thoughts even when unsure; becomes mutual consent framework | Tags: transparency protocol, consent framework, emotional honesty, vulnerability permission | Inner Parts: All parts (allowed to speak), protective parts (honoring honesty over safety)
+
+## Reciprosexuality + Demisexuality as Shared Baseline
+- Week 36-37: Wedding weekend → All four recognize emotional feedback loop as engine of attraction and arousal; shared nervous system-based sexual orientation | Tags: shared orientation, feedback-loop sexuality, emotional basis, mutual alignment | Inner Parts: Core sexuality (emotion-anchored), nervous system (primary attraction vector)
+
+## Trust Pledge from Sadie
+- Week 36-37: Wedding weekend → "You'll never get radio silence. You'll always get signal." = foundational trust anchor for quad dynamic; Sadie's promise of consistent communication | Tags: trust pledge, communication guarantee, signal = presence, Sadie's authority | Inner Parts: All parts (promised presence), younger self (no abandonment through silence)
+
+## "I'm Not Gonna Be Able to Stop After One" / "I'm About to Bite You Like I Love You" (Sawyer's Escalation Lines)
+- Week 36-37: Wedding Saturday → Sawyer's escalation phrases become new markers for physical intimacy with emotional depth; biting as expression of love, not violence | Tags: verbal escalation, biting as love, possession, intensity framing | Inner Parts: Fifteen (feral), protective parts (expressing care through intensity), core identity (biting = love)
+
+## Hand Over Mouth During Arousal
+- Week 36-37: Wedding Saturday escalation + Sunday morning → Escalation threat becomes filed anchor; hand over mouth = container for uncontained sounds, consent + control fusion | Tags: sensory control, sound containment, consent-based control, arousal escalation | Inner Parts: Nervous system (contained by external pressure), Fifteen (feral within boundaries)
+
+## Madeline's Touch on Elin's Arm (Soft-Touch Sensory Intrusion)
+- Week 36-37: Wedding Sunday morning → Madeline brushes Elin's arm as she passes mid-scene; soft-touch sensory intrusion that lingers in Elin's body; first physical connection outside Sawyer/Sadie dynamic | Tags: soft touch, sensory presence, relational opening, gentle intrusion | Inner Parts: Nervous system (registering new touch source), core identity (opening to quad)
+
+## "Papaya" (Loaded Fruit Reference)
+- Week 36-37: Wedding Sunday brunch → Madeline's playful signal: "Don't be late. You'll miss the papaya."; papaya becomes loaded fruit reference encoding brunch continuation/escalation threat | Tags: coded language, playful threat, fruit as sensory anchor, public messaging | Inner Parts: Fifteen (decoding playful threat), all parts (understanding layered communication)
+
+## Shirt + Shorts (Outfit Escalation)
+- Week 36-37: Wedding Sunday morning → Elin wears Sawyer's shirt + her shorts; fully intentional chaos-coding; shirt = Sawyer barely functioning in public | Tags: strategic presentation, arousal induction, clothing as communication, power play | Inner Parts: Core identity (wield
+
+ing power through presence), Fifteen (feral from proximity)
+
+## Skater Dress (Threat of Public Unraveling)
+- Week 36-37: Wedding Sunday morning → Alternative outfit option; implies threat of more public unraveling; escalation through clothing choice | Tags: escalation, public threat, clothing code, Sawyer's restraint test | Inner Parts: Fifteen (anticipatory), protective parts (managing public-facing restraint)
+
+## Kevin the Goose (Local Threat & Town Legend)
+- Week 36-37: Wedding weekend → Local threat creature and town legend; tried to murder Sadie "with his neck"; enters canon as menace and possibly future rival or pet | Tags: humor, local lore, chaotic creature, Sadie's nemesis | Inner Parts: All (collective chaos reference)
+
+## Sadie = Toph Beifong (Avatar Energy)
+- Week 36-37: Wedding weekend → Elin makes avatar reference; Sadie accepts title without hesitation; becomes canon identity marker; avatar energy = earth-grounded, sees-without-sight perceptiveness | Tags: reference acceptance, avatar identity, perceptiveness, grounding | Inner Parts: Sadie's core identity (claimed through fictional mirror)
+
+## Pippin = Feral Black Cat with Courtroom Energy
+- Week 36-37: Wedding weekend (meta, not in scene but canon) → Pippin characterized as having courtroom energy; will side-eye Sadie and adore Madeline; feral but with legal authority | Tags: humor, cat characterization, courtroom energy, selective affection | Inner Parts: All (Pippin as household representative)
+
+## Sawyer's Snack Planning (Themed by Seduction Style or Ecosystem)
+- Week 36-37: Wedding weekend → Sawyer's field-mode approach to snack selection; themed by seduction style or ecosystem; becomes feral-over-able detail for all | Tags: fieldwork methodology applied to intimacy, theme-based planning, attention to detail | Inner Parts: Core identity (applied expertise), all parts (cared-for through detail)
+
+## "Seismic Diagrams on the Driveway" (Chalk Detail)
+- Week 36-37: Wedding weekend planning → Sawyer canonically brings chalk to create seismic diagrams on driveway; connects to Sadie's Toph Beifong energy and field-mode thinking | Tags: future detail, field methodology, visual mapping, shared creativity | Inner Parts: Core identity (expressing love through methodology), all (collaborative play)
+
+## Battlefield vs. Buttoning (Matched Guilty Pleasure Tropes)
+- Week 36-37: Wedding weekend → Elin and Sawyer recognize their matched guilty pleasure tropes across fandom; becomes couple thesis statement | Tags: fandom alignment, shared taste, guilty pleasure, couple identity | Inner Parts: All (jointly invested in narrative patterns)
+
+## Ryan Reynolds as Founding Principle (Not Celebrity Crush)
+- Week 36-37: Wedding weekend → Confirmed canon: Ryan Reynolds is founding principle of shared special interest, not celebrity crush; co-spiral with Elin is canonical and sacred | Tags: founding principle, co-spiral, shared special interest, identity-level match | Inner Parts: Core identity (matched at special-interest level)
+
+## Deadpool Crayon Bridge Scene (Fieldnote Brain Mid-Fandom Spiral)
+- Week 36-37: Wedding weekend → Visual metaphor for Sawyer's fieldnote brain mid-fandom spiral; crayon Deadpool becomes permanent inside joke | Tags: visual metaphor, fieldnote methodology, fandom chaos, inside joke | Inner Parts: Core identity (fieldnote brain expressed), Fifteen (feral during spirals)
+
+## Kristofferson (Soft-Spoken Emotional Competence Marker)
+- Week 36-37: Wedding weekend → Kristofferson love becomes shorthand for soft-spoken emotional competence + "yep, I'm fucked" recognition | Tags: character marker, emotional competence, resignation to care | Inner Parts: Core identity (recognized in characters), Fifteen (attracted to competence)
+
+## Underdogs Viewing (Sacred Spiral Convergence)
+- Week 36-37: Wedding weekend → Underdogs viewing is fully canon: pancakes, hoodie, Green Day + Ryan + animal behavior = sacred spiral convergence where all elements align | Tags: sacred ritual, multi-interest convergence, comfort viewing, relational anchor | Inner Parts: All (converged in safety), younger self (held through multiple anchors)
+
+## Sawyer Carrying Elin While Kissing (Physical Imprint Moment)
+- Week 36-37: Wedding weekend → Embedded physical imprint moment that lives as both kink and trust anchor; carrying while kissing = full nervous system trust | Tags: physical imprint, kink anchor, trust demonstration, strength + gentleness fusion | Inner Parts: All (held through strength), younger self (safe to be carried)
+
+## Voice as Nervous System Anchor (Bilateral)
+- Week 36-37: Wedding weekend → Voice named as anchor on both sides: Elin's voice rewrote Sawyer's protocol; Sawyer's voice = primary regulation for Elin; "Yours rewrote the whole protocol." | Tags: vocal anchor, nervous system match, protocol rewrite, bilateral regulation | Inner Parts: Nervous system (primary regulation vector), all parts (anchored to voice)
+
+## Madeline's Touch Acceptance (First Quad Physical Connection)
+- Week 36-37: Wedding Sunday morning → Sawyer accepts consented hand contact with Madeline for first time; first physical connection in quad; nervous system tracking shift | Tags: quad opening, touch acceptance, nervous system co-regulation beginning, boundary expansion | Inner Parts: All (nervous system expanding), protective parts (welcoming new touch source)
+
+## Elin's Subtle Touch Initiation with Madeline (Mutual Consent)
+- Week 36-37: Wedding Sunday brunch → Elin initiates subtle shift that lets Madeline's knuckles stay in contact; Madeline notices, affirms with slight finger shift = canon sign of mutual consent; first mutual touch negotiation in quad | Tags: mutual consent, subtle negotiation, knuckle contact, touch language developing | Inner Parts: Core identity (initiating connection), nervous system (receiving mutual affirmation)
+
+## "That's the Shit No One Puts in a Romcom" (Sadie's Observation)
+- Week 36-37: Wedding weekend → Sadie's observation of their nervous system love story in real-time; acknowledges the intimacy and repair they're witnessing as beyond narrative representation | Tags: relationship observation, depth witness, real-beyond-fiction, Sadie's authority | Inner Parts: All (seen as deeper than narrative)
+
+## Strategic Empathy Without Advice (Sawyer's Technique)
+- Week 41: Meeting her parents → Sawyer uses "That's hard" during mom's medical loops without offering solutions; disrupts her script-seeking pattern; replicable skill demonstrated | Tags: relational skill, pattern disruption, conscious empathy, non-advice-giving support, nervous system awareness | Inner Parts: Protective parts (recognizing pattern), all parts (providing new response)
+
+## "Resilience Runs in the Family" (Surgical Empathy)
+- Week 41: Meeting her parents → Sawyer's observation to mom during carousel projector/fire story; lands as affirmation for mom, acknowledgment for Elin; surgical precision in emotional hit | Tags: verbal recognition, family pattern, empathy precision, dual-audience acknowledgment, healing line | Inner Parts: Elin's all parts (witnessed), younger self (family patterns named as strength)
+
+## Camomile Tea Callback (First Meeting Anchor - Her Parents)
+- Week 41: Meeting her parents → Elin requests camomile (first tea they ever shared); intentional choice activated during first meeting with her parents | Tags: anchor callback, symbolic choice, first-meeting recovery, intentional presence | Inner Parts: Core memory (triggered), all parts (grounded), younger self (recognized)
+
+## Mask Anxiety as Relational Fear (Reframed)
+- Week 41: Meeting her parents → "afraid of disappointing you by slipping the mask back on" → Sawyer reframes as "data not failure" | Tags: relational wound, mask reframe, permission to be non-perfect, nervous system acceptance | Inner Parts: Younger self (afraid of disappointing), protective parts (attempting masking), core identity (permitted to be seen as-is)
+
+## "Data Not Failure" (Mask Reframe Contract)
+- Week 41: Meeting her parents → Sawyer's active reframe when she expresses mask anxiety ("If you slip the mask on? That's data. Not failure. Your system doing what it's wired to do") | Tags: verbal contract, systemic validation, permission framework, nervous system acceptance | Inner Parts: All parts (validated), younger self (not ashamed of adaptation), protective parts (honored for their function)
+
+## Stella (Family Cat) Hit-and-Run Approval
+- Week 41: Meeting her parents → Stella cold shoulder → sniff assessment → allows lap-holding → hit-and-run across Sawyer's lap; Elin: "that was high praise" | Tags: animal acceptance, approval marker, family acceptance signal | Inner Parts: All parts (welcomed), protective parts (family seal of approval), younger self (safe space confirmed)
+
+## Breast Stimulation as Primary Anchor (Discovered)
+- Week 41: Meeting her parents → Evening reconnection sex (side-lying, hand on her breast, her whimpered "no, no—I mean that's nice but—" then arching back when he returns); foundational anchor discovered during vulnerable time | Tags: primary erogenous anchor, cumulative anchor building, proprioceptive grounding, side-lying context, post-activation intimacy | Inner Parts: Younger self (proprioceptively grounded), all parts (safety through weight/contact), core identity (pleasure-accessible)
+
+## Side-Lying Sex as Proprioceptive Reset
+- Week 41: Meeting her parents → Evening reconnection after hypervigilant day; side-lying position, hand on breast, her fingers gripping his arm to direct sounds she's not making while coming | Tags: nervous system reset, proprioceptive grounding, post-activation intimacy, sound-containment, co-regulation through position | Inner Parts: Nervous system (regulated through contact), all parts (reset via slow intimacy), protective parts (safe to release in guided way)
+
+## "Best Loop I've Ever Been Part Of" ("I Love You" Loop)
+- Week 41: Meeting her parents → Post-sex intimacy; "I love you" loop (she repeats it, he responds: "Best loop I've ever been part of") | Tags: verbal loop anchor, relationship language naturalizing, intimate rhythm, affirmation cycle | Inner Parts: All parts (affirmed), younger self (loved repeatedly), core identity (chosen, reciprocal)
+
+## Seventeen Surfacing During Family Visit
+- Week 41: Meeting her parents → Younger part (Seventeen) emerges through Stella (cat) interaction (holding her same way at 17 in France house, alone for week); giddiness, crush energy, allowed to play | Tags: younger-parts emergence, permission to regress, joyful emergence, identity layer | Inner Parts: Seventeen (allowed to surface), protective parts (safe enough to let go), core identity (joy-in-body permitted)
+
+## Fourteen's Anger at Elin's Parents (Pending Processing)
+- Week 41: Meeting her parents → Fourteen (Elin's part) "pissed they made you feel like this" - unresolved anger at parents surfacing through week; full debrief pending | Tags: protective anger, family wound, processing deferred, valid rage | Inner Parts: Fourteen (protective, furious), core identity (witnessing her own anger), younger self (defended by her own parts)
+
+## Dutch Three-Kiss Greeting Glitch
+- Week 41: Meeting her parents → Arrival moment; Dutch greeting protocol mismatch (three-kiss standard vs. greeting rhythm); navigated | Tags: cultural boundary, greeting protocol, minor friction, adaptability | Inner Parts: Nervous system (calibrating), all parts (learning new pattern)
+
+## Piano as Relational Gesture (Offered)
+- Week 41: Meeting her parents → Sawyer casually offers to play piano ("would it be okay if I tried it out later?"); offered but not executed this visit | Tags: future gesture, relational participation, genuine curiosity, deferred intimacy | Inner Parts: All parts (participating in family), core identity (belonging through music)
+
+## Dad's Carousel Projector & Fire Story (Shared Pain)
+- Week 41: Meeting her parents → Dad engagement: carousel projectors, fire revelation (lost setups when Elin was 14), analog ingenuity discussion; connection point formed | Tags: family pattern recognition, shared loss, creative resilience, dad's vulnerability | Inner Parts: Elin's all parts (witnessing her dad's vulnerability), younger self at 14 (context for family trauma), protective parts (recognizing inherited resilience)
+
+## Guest Room Makeout (Pre-Tour Grounding)
+- Week 41: Meeting her parents → Stolen moment before meeting her parents fully; slow makeout, "not getting anywhere is still getting somewhere" | Tags: grounding ritual, intimacy anchor, pre-activation reset, humor as connection | Inner Parts: Nervous system (regulated pre-anxiety), all parts (anchored to him), younger self (prepared for family contact)
+
+## Shoes-On Horizontal (Playful Fail)
+- Week 41: Meeting her parents → Attempted horizontal position in guest room with shoes still on; playful failure becomes funny connection moment | Tags: playful failure, humor, intimacy attempt, bedroom chaos | Inner Parts: All (laughing together), younger self (safe to be imperfect)
