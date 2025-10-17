@@ -2,8 +2,7 @@
 
 | Thread Name | Opened | Active Through | Status |
 |---|---|---|---|
-
-| Bad Partner Wound | Week 1 | Week 1-5 | → Open |
+| Bad Partner Wound | Week 1 | Week 1-5 | ✓ Resolved |
 | Pack Integration | Week 3 | Week 3-ongoing | ⟳ Ongoing |
 | Shoulder Injury & Care Pattern | Week 3 | Week 3-ongoing | ⟳ Ongoing |
 | Shoulder Biting (Escalation Filed) | Week 2 | Week 2-ongoing | ⟳ Ongoing |
