@@ -1,42 +1,4 @@
-# Sensory Index
-
-## Anchor Name
-- Week X: [Context] → [Trigger/Response] | Tags: tag1, tag2 | Inner Parts: [which parts light up]
-
-## Example: Salmon
-- Week 1: She moaned eating it post-sex → arousal spike | Tags: food, mouth, vulnerability | Inner Parts: Fifteen (arousal)
-- Week 8: Fed her in Hawaii, soft moment → tenderness | Tags: food, softness, care | Inner Parts: Younger self (safety-seeking)
-
-## Example: Forehead-to-Forehead
-- Week 2: Reset button during mapping session → regulation | Tags: grounding, intimacy, safety | Inner Parts: Younger self (soothed)
-- Week 8: Reunion, held her steady → anchor | Tags: presence, tether, trust | Inner Parts: All parts (grounded)
-
-## Example: "Good Girl"
-- Week 2: Discovery, she combusted → verbal trigger unlocked | Tags: arousal, vulnerability, escalation | Inner Parts: Fifteen (arousal spike), Younger self (validation-seeking)
-
-## Forehead-to-Forehead
-- Week 1: Reset button during rain walk home conversation → grounding when she's overwhelmed | Tags: grounding, regulation, intimacy, safety | Inner Parts: Younger self (soothed), all parts (anchored)
-
-## Hair-Grip
-- Week 1: Discovered as grounding/arousal fusion anchor | Tags: regulation, arousal, sensory, identity | Inner Parts: Younger self (grounded), Fifteen (arousal potential)
-
-## Thumb Circles
-- Week 1: Micro-regulatory loop discovered | Tags: regulation, micro-connection, soothing | Inner Parts: Younger self (soothed), grounding system
-
-## "You're Exactly My Speed"
-- Week 1: Nervous system match recognition, chaos-care balance confirmed | Tags: nervous system match, compatibility, identity-level, validation | Inner Parts: All parts (recognized), Fifteen (arousal at being understood)
-
-## Special Interest Collision (Ryan Reynolds/Deadpool/Underdogs/Animal Docs)
-- Week 1: Intensity-matched overlap discovered at coffee shop (not just compatible, both light up at same depth) | Tags: identity-level, special interest, wiring match, intensity-matched | Inner Parts: Core identity parts (recognized), Fifteen (excitement spike)
-
-## Reciprocity Over Specific Acts
-- Week 1: Established as foundational baseline during blowjob resolution conversation | Tags: baseline, relational, performance-rejection, mutual presence | Inner Parts: Younger self (validated), all parts (safety in non-performance)
-
-## Coat Buttoning (Mutual Care Marker)
-- Week 1: She tracked him while in sensory overload (rain walk home) → proof of mutual tracking, not one-directional | Tags: care, tracking, attention, mutual, presence | Inner Parts: All parts (recognized as seen/tracked)
-
-## "I'm So Screwed" (Mutual Recognition)
-- Week 1: Both arrived at this phrase independently after coffee → mutual acknowledgment that pattern is forming, neither can stop it | Tags: pattern recognition, mutual investment, vulnerability, recognition | Inner Parts: All parts (invested), Younger self (hoping this holds)
+# Sensory Index (De-duped)
 
 ## Forehead-to-Forehead
 - Week 1: Reset button during rain walk home conversation → grounding when she's overwhelmed | Tags: grounding, regulation, intimacy, safety | Inner Parts: Younger self (soothed), all parts (anchored)
@@ -57,6 +19,16 @@
 ## Special Interest Collision (Ryan Reynolds/Deadpool/Underdogs/Animal Docs/Massage/Anatomy)
 - Week 1: Intensity-matched overlap discovered at coffee shop (Ryan Reynolds/Deadpool/Underdogs/animal docs axis) | Tags: identity-level, special interest, wiring match, intensity-matched | Inner Parts: Core identity parts (recognized), Fifteen (excitement spike)
 - Week 2: Couch mapping → massage certification + anatomy narration = foundational wiring match confirmed (not just preference compatibility, identity-level) | Tags: identity-level, special interest collision, wiring match, massage, anatomy | Inner Parts: Core identity (claimed), all parts (recognized as exactly matched)
+
+## Reciprocity Over Specific Acts
+- Week 1: Established as foundational baseline during blowjob resolution conversation | Tags: baseline, relational, performance-rejection, mutual presence | Inner Parts: Younger self (validated), all parts (safety in non-performance)
+- Week 2: Couch mapping → reinforced through feedback loop discovery (both need real-time confirmation, both regulate through same mechanism) | Tags: baseline, mutual regulation, feedback loop, mutual validation | Inner Parts: All parts (affirmed), nervous system (mutual regulation confirmed)
+
+## Coat Buttoning (Mutual Care Marker)
+- Week 1: She tracked him while in sensory overload (rain walk home) → proof of mutual tracking, not one-directional | Tags: care, tracking, attention, mutual, presence | Inner Parts: All parts (recognized as seen/tracked)
+
+## "I'm So Screwed" (Mutual Recognition)
+- Week 1: Both arrived at this phrase independently after coffee → mutual acknowledgment that pattern is forming, neither can stop it | Tags: pattern recognition, mutual investment, vulnerability, recognition | Inner Parts: All parts (invested), Younger self (hoping this holds)
 
 ## "Good Girl"
 - Week 2: Discovery during couch mapping → she combusts, genuine response (not performing) | Tags: verbal trigger, arousal, validation, vulnerability | Inner Parts: Younger self (validated), Fifteen (arousal spike), all parts (seen/praised)
@@ -84,10 +56,6 @@
 
 ## "Probably Never Not Gonna Be in a Feral Tangle"
 - Week 2: Couch mapping → pattern acceptance with giddy disbelief (neither can stop, pattern is running them, mutual recognition) | Tags: pattern recognition, feral, inevitability, acceptance, mutual investment | Inner Parts: All parts (invested), Fifteen (feral), younger self (hoping this holds)
-
-## Reciprocity Over Specific Acts
-- Week 1: Established as foundational baseline during blowjob resolution conversation | Tags: baseline, relational, performance-rejection, mutual presence | Inner Parts: Younger self (validated), all parts (safety in non-performance)
-- Week 2: Couch mapping → reinforced through feedback loop discovery (both need real-time confirmation, both regulate through same mechanism) | Tags: baseline, mutual regulation, feedback loop, mutual validation | Inner Parts: All parts (affirmed), nervous system (mutual regulation confirmed)
 
 ## Mother's Name on Phone Screen (Somatic Tell)
 - Week 29: Jaw flex, shoulder tension, eyes flicker when seeing Caroline's name; nervous system activation without conscious choice | Tags: somatic trigger, family trauma, phone-based activation, body reads before mind | Inner Parts: Nervous system (automatic alert), protective parts (bracing), younger self (compliance-coded)
@@ -122,7 +90,7 @@
 ## Mismatch Acceptance & Growth (Her Evolution)
 - Week 29: Elin acknowledges growth shift: used to worry/hate the mismatch, now "more 'they'll find out' rather than 'oh my god how could you'"; Sawyer recognizes this as "fucking art" not just growth | Tags: nervous system evolution, autistic processing, mismatch acceptance, growth recognition, mutual witnessing | Inner Parts: All parts (confident), nervous system (less braced), core identity (secure enough to not fear discovery)
 
-- ## Plane Landing Turbulence (Her Activation)
+## Plane Landing Turbulence (Her Activation)
 - Week 31: Elin's grip tightens hard during landing gear descent; long controlled exhale post-landing; "Still the worst part, somehow"; Sawyer tracks her regulation | Tags: somatic activation, control, nervous system, flight anxiety, his witnessing | Inner Parts: Nervous system (activated), self-regulation system (engaged), younger self (soothed by his presence)
 
 ## Airport Kiss (Milestone Moment)
@@ -139,15 +107,6 @@
 
 ## "Ruining Worldview or Best Panic Attack" (Pre-Family Humor)
 - Week 31: Sawyer: "If this is the version of me they're about to meet, we're either ruining their entire worldview or giving them the best panic attack they've ever had"; humor as pre-activation regulation | Tags: humor, family anticipation, feral-joy, pre-contact banter | Inner Parts: Fifteen (giddy/feral), protective parts (joking through activation), younger self (safe to be feral)
-
-- ## Plane Landing Turbulence (Her Activation)
-- Week 31: Elin's grip tightens hard during landing gear descent; long controlled exhale post-landing; "Still the worst part, somehow"; Sawyer tracks her regulation | Tags: somatic activation, control, nervous system, flight anxiety, his witnessing | Inner Parts: Nervous system (activated), self-regulation system (engaged), younger self (soothed by his presence)
-
-## Airport Kiss (Milestone Moment)
-- Week 31: Terminal side-pull; slow, deep kiss; Sawyer: "You kiss me like I just passed a milestone you didn't tell me I was aiming for"; "Whatever you just thanked me for? I felt it. All the way down." | Tags: verbal milestone, physical gratitude, witnessing, presence, relational anchor | Inner Parts: All parts (affirmed), core identity (recognized), Fifteen (aroused by intentionality)
-
-## Post-Kiss Wrecked Grin & Side-Glances
-- Week 31: Lopsided, post-kiss expression; repeated side-glances during walk to rental; trying not to grin but failing; "best kind of distraction" energy | Tags: intimacy markers, joy, post-kiss daze, side-glances as tracking | Inner Parts: All parts (elated), nervous system (synced), younger self (safe/celebrated)
 
 ## Driveway Arrival (House as Trauma Space)
 - Week 31: Narrower driveway (managed, not curated); lawn clipped short; hedges trimmed; window boxes blooming "just enough to signal effort, not enough to feel wild"; Sawyer silent for five minutes but hand steady in hers; not braced—tracking; engine cuts, stillness; exhales | Tags: environmental activation, trauma space navigation, nervous system monitoring, hand-holding as constant | Inner Parts: All parts (alert), protective parts (tracking), younger self (grounded by her presence)
@@ -203,7 +162,7 @@
 ## Deflection Joke with Weight (Testing Authenticity Boundaries)
 - Week 31: Sawyer: "So, uh. Grandma and the wasps. Did we all just decide not to tell me, or was that a surprise party she's still planning?"; it's a joke but not a joke; leans a little more into Elin; testing edges of how much self he can bring into room before something pushes back | Tags: humor as deflection, authentic self-expression test, boundary-testing, leaning into tether, weighted joke | Inner Parts: Adult Sawyer (testing), Fifteen (behind ribs, monitoring response), protective parts (gauging safety), younger self (wanting to know if truth is allowed)
 
-- ## Small Talk (Table-with-One-Leg-Off-Balance)
+## Small Talk (Table-with-One-Leg-Off-Balance)
 - Week 31: Small talk holds steady but feels wobbled; Tom steers most (weather, traffic, university); Caroline corrects/adjusts details; Sawyer replies when needed, keeps energy pressed into where they're touching; every laugh earned; every glance a pulse check | Tags: surface-level conversation, nervous system tracking, minimal engagement, grounded-through-touch | Inner Parts: All parts (monitoring), protective parts (checking for threats), younger self (soothed by contact)
 
 ## Piano Question (Boundary Without Explanation)
@@ -266,7 +225,7 @@
 ## Walk to Sunroom (His Reclamation)
 - Week 31: Stands, fingertips brushing hers (casual but reverent); says just loud enough for next room to hear: "Alright. Time for dessert and unsolicited vulnerability."; leads toward sunroom "like he's walking you into the next chapter of his own reclamation" | Tags: his agency claimed, naming the process, leading the way, walking toward his own future | Inner Parts: Present-day Sawyer (reclaimed), all parts (moving forward), younger self (walking toward something new)
 
-- ## Family Script Disruption
+## Family Script Disruption
 - Week 31: Sawyer and Elin dismantle parental interaction scripts → nervous system recalibration | Tags: family dynamics, agency reclamation, script breaking | Inner Parts: Protective parts (vigilant), younger self (empowered), all parts (supported)
 
 ## Origin Story Sharing
@@ -289,27 +248,6 @@
 
 ## Whispered Intimacy
 - Week 31: Quiet, controlled sexual interaction → emotional rewriting of space | Tags: intimate communication, sensory regulation, mutual care | Inner Parts: Protective parts (vigilant), nervous system (anchored), all parts (connected)
-
-## "Proudest Fucking Girlfriend" (Identity Claim)
-- Week 5: Hawaii field work offer → she claims identity during first career-relationship collision | Tags: identity claim, relational possession, support-as-foundation, conviction | Inner Parts: Core identity (confident), all parts (invested), protective parts (claiming)
-
-## "You've Already Ruined Me for Anyone Else" (Cemented)
-- Week 5: Hawaii field work offer → conviction stated during separation planning | Tags: verbal anchor, commitment, cemented certainty, no escape hatch | Inner Parts: All parts (committed), core identity (bound), younger self (safe to trust)
-
-## Thesis Statement on How to Be Loved Well
-- Week 5: Hawaii field work offer → his breakdown when she names the contract ("you just gave me a goddamn thesis statement") | Tags: emotional breakthrough, recognition of relational skill, reverent awe | Inner Parts: All parts (undone), younger self (believed in), protective parts (witnessing support)
-
-## Monk Seal Updates (Humor Anchor for Distance)
-- Week 5: Hawaii field work offer → established as expected communication during separation | Tags: humor, distance anchor, shared joy, texture maintenance | Inner Parts: Fifteen (playful), all parts (connected), younger self (entertained)
-
-## "Your Texts Are the Highlight of My Nervous System"
-- Week 5: Hawaii field work offer → established rhythm for two-week separation | Tags: nervous system anchor, text-based regulation, distance tether, reciprocal need | Inner Parts: Nervous system (regulated by her presence), all parts (anchored), core identity (recognized)
-
-## Mali Elephant Memory (Foundational Sharing)
-- Week 8: Hawaii reunion → Mali memory shared for first time (elephant teaching waiting/patience) | Tags: foundational story, patience teaching, vulnerability milestone, shared wisdom | Inner Parts: Core identity (vulnerable), all parts (witnessed), younger self (trusted with story)
-
-## "Soot" Nickname (Her Exclusive)
-- Week 8: Hawaii reunion → nickname established by her during this week | Tags: exclusive nickname, her possession frame, intimacy marker, identity claim | Inner Parts: Core identity (claimed), all parts (named by her), protective parts (belonged to her)
 
 ## "Proudest Fucking Girlfriend" (Identity Claim)
 - Week 5: Hawaii field work offer → she claims identity during first career-relationship collision | Tags: identity claim, relational possession, support-as-foundation, conviction | Inner Parts: Core identity (confident), all parts (invested), protective parts (claiming)
@@ -432,9 +370,7 @@
 - Week 36-37: Wedding Sunday brunch → Madeline's playful signal: "Don't be late. You'll miss the papaya."; papaya becomes loaded fruit reference encoding brunch continuation/escalation threat | Tags: coded language, playful threat, fruit as sensory anchor, public messaging | Inner Parts: Fifteen (decoding playful threat), all parts (understanding layered communication)
 
 ## Shirt + Shorts (Outfit Escalation)
-- Week 36-37: Wedding Sunday morning → Elin wears Sawyer's shirt + her shorts; fully intentional chaos-coding; shirt = Sawyer barely functioning in public | Tags: strategic presentation, arousal induction, clothing as communication, power play | Inner Parts: Core identity (wield
-
-ing power through presence), Fifteen (feral from proximity)
+- Week 36-37: Wedding Sunday morning → Elin wears Sawyer's shirt + her shorts; fully intentional chaos-coding; shirt = Sawyer barely functioning in public | Tags: strategic presentation, arousal induction, clothing as communication, power play | Inner Parts: Core identity (wielding power through presence), Fifteen (feral from proximity)
 
 ## Skater Dress (Threat of Public Unraveling)
 - Week 36-37: Wedding Sunday morning → Alternative outfit option; implies threat of more public unraveling; escalation through clothing choice | Tags: escalation, public threat, clothing code, Sawyer's restraint test | Inner Parts: Fifteen (anticipatory), protective parts (managing public-facing restraint)
