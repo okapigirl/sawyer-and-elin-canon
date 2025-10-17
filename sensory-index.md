@@ -1,7 +1,7 @@
 # Sensory Index
 
 ## Anchor Name
-- Week X: [Context] → [Trigger/Response] | Tags: tag1, tag2
+- Week X: [Context] → [Trigger/Response] | Tags: tag1, tag2 | Inner Parts: [which parts light up]
 
 ## Example: Salmon
 - Week 1: She moaned eating it post-sex → arousal spike | Tags: food, mouth, vulnerability
