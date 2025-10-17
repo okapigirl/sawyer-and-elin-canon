@@ -274,3 +274,20 @@
 
 ## Parental Gift Reception
 - Week 31: Smartwatch and cufflinks received → subtle power dynamics exposed | Tags: familial performance, gift as control mechanism, agency testing | Inner Parts: Protective parts (analyzing), younger self (not compliant), all parts (held by mutual support)
+
+## Sketchbook Retrieval Moment
+- Week 31: Sawyer returns to retrieve sketchbook, encounters potential parental confrontation | Tags: agency reclamation, boundary setting, protective behavior | Inner Parts: Protective parts (vigilant), younger self (assertive), core identity (defended)
+
+## Parental Interaction Dynamics
+- Week 31: Brief interaction after dinner, potential attempt to corner or interrogate Sawyer | Tags: family power dynamics, nervous system activation, boundary testing | Inner Parts: Protective parts (alert), younger self (braced), all parts (supported by Elin's presence)
+
+## Bedroom Reclamation
+- Week 31: Sexual intimacy in Sawyer's childhood bedroom → nervous system rewriting | Tags: family space transformation, intimate rebellion, agency reclamation | Inner Parts: Protective parts (triumphant), younger self (healed), all parts (supported)
+
+## Parental Boundary Navigation
+- Week 31: Intimate moment with potential interruption → mutual trust and support | Tags: family dynamics, intimate resilience, silent communication | Inner Parts: Core identity (affirmed), all parts (safe), younger self (protected)
+
+## Whispered Intimacy
+- Week 31: Quiet, controlled sexual interaction → emotional rewriting of space | Tags: intimate communication, sensory regulation, mutual care | Inner Parts: Protective parts (vigilant), nervous system (anchored), all parts (connected)
+
+
