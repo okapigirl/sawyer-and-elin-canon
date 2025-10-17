@@ -75,6 +75,43 @@ No timeline placement restating (it's in the row).
 
 ---
 
+## Sensory Index Management
+
+### Adding New Anchors
+- When extracting scenes, I suggest anchors found
+- You ask: "Do these exist already?"
+- I cross-reference against live sensory index
+- I flag: "[Anchor A] exists (Week X, Y) — add new bullet" or "[Anchor B] is new — add as new section"
+- You paste accordingly
+
+### Small batches (1-5 anchors)
+- You can search sensory-index.md yourself using Ctrl+F / Cmd+F
+
+### Large batches (5+ anchors)
+- Ask me to cross-check: "Do these exist already?"
+- I verify against current index and tell you status of each
+
+---
+
+## Data Extraction (Non-Writing Sessions)
+
+### Trigger
+- 🧬 = extraction mode (no scene writing, data work only)
+
+### Deliverables
+- Canonical references row (ready to paste)
+- Sensory index entries (with Inner Parts column)
+- Thread timeline entries (with Status)
+- Anchor deduplication check (if requested)
+
+### Workflow
+1. You provide raw data/scene documentation
+2. I extract into all three GitHub formats
+3. Flag any anchors needing existence check
+4. You paste into corresponding files
+
+---
+
 ## Before New Writing Sessions
 
 When starting a scene:
