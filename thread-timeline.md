@@ -74,3 +74,8 @@
 | Dessert + "Unsolicited Vulnerability" | Week 31 | Week 31 (pending) | → Open |
 | Tom's Interest in Sketchbook & Animals | Week 31 | Week 31 (sunroom, pending) | → Open |
 | Caroline's Continued Recalibration | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Thread Name | Opened | Active Through | Status |
+| First Family Meeting | Week 29 | Week 31 | ✓ Resolved |
+| Family Boundaries Negotiation | Week 29 | Week 31 | ✓ Resolved |
+| Birthday Ownership | Week 29 | Week 31 | ✓ Resolved |
+| Creative Collaboration Teasing | Week 29 | Week 31 | ⟳ Ongoing |
