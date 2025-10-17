@@ -79,3 +79,7 @@
 | Family Boundaries Negotiation | Week 29 | Week 31 | ✓ Resolved |
 | Birthday Ownership | Week 29 | Week 31 | ✓ Resolved |
 | Creative Collaboration Teasing | Week 29 | Week 31 | ⟳ Ongoing |
+| Family Boundaries Negotiation | Week 29 | Week 31 | ✓ Resolved |
+| Birthday Ownership | Week 29 | Week 31 | ✓ Resolved |
+| Cryptid Sex Planning | Week 29 | Week 31 | → Open |
+| Intimate Space Reclamation | Week 31 | Week 31 | ✓ Resolved |
