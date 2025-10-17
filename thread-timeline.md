@@ -37,3 +37,12 @@
 | Biting Unlocked as Possession Frame | Week 2 | Week 2-ongoing | ⟳ Ongoing |
 | Pack Arrival & Integration | Week 3+ | Week 3-ongoing | → Open |
 | Birthday Planning with Family | Week 3+ | Week 3-ongoing | → Open |
+| Family Boundaries & Reclamation | Week 29 | Week 29-ongoing | ⟳ Ongoing |
+| Birthday Ownership vs. Parental Default | Week 29 | Week 29 → Week 31 (execution) | → Open |
+| Somatic Activation Language (Real-Time Check-Ins) | Week 29 | Week 29-ongoing | ⟳ Ongoing |
+| Cryptid Sex & National Park Logistics | Week 29 | Week 29 → Week 31 (execution) | → Open |
+| "Not Hiding" Accountability (Visible During Family Contact) | Week 29 | Week 29 → Week 31 (execution) | → Open |
+| Creative Collaboration: Sketching & Composition (Soot & Maze) | Week 29 | Week 29-ongoing | ⟳ Ongoing |
+| Mutual Creative Archive (Documentation of Each Other) | Week 29 | Week 29-ongoing | ⟳ Ongoing |
+| First Family Meeting (Elin meets Caroline & Tom) | Week 29 | Week 31 (execution planned) | → Open |
+| Elin's Mismatch Acceptance & Nervous System Evolution | Week 29 | Week 29-ongoing | ⟳ Ongoing |
