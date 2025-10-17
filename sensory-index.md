@@ -1,4 +1,4 @@
-# Sensory Index (De-duped)
+  # Sensory Index (De-duped)
 
 ## Forehead-to-Forehead
 - Week 1: Reset button during rain walk home conversation → grounding when she's overwhelmed | Tags: grounding, regulation, intimacy, safety | Inner Parts: Younger self (soothed), all parts (anchored)
@@ -532,4 +532,93 @@
 - Pattern tested: nostalgic overload met with humor, touch, pacing
 - Identity evolution: teen selves allowed active presence without shame
 - Cumulative weight: "Home with you" embodied in real time (not just concept, but lived experience in her origin space) | Tags: territorial claim, mutual joy, nostalgic navigation, younger-parts joy, origin integration | Inner Parts: All younger parts (allowed active presence), core identity (home-creating together), nervous system (regulated across origin trauma)
+
+## Week 2: Massage Revelation (Kitchen Evening)
+- Week 2: Post-mapping domesticity → She discloses tension map + medical history + sound during touch | Tags: special interest collision, care fusion, body vulnerability, sound anticipation as tactical arousal, "I love you" naturalizing | Inner Parts: Core identity (body trusted), all parts (system relief)
+- Her tension patterns: shoulders/traps, right ribs restricted, rotation limited
+- Sound warning: "I don't hold back sounds during massage" → him: "filing that under things that wreck me"
+- Medical history: right knee inflammation, leg length discrepancy → he maps muscle chains (IT band, hip flexors, piriformis), avoids direct work
+- Inside elbows boundary: blood work trauma, no direct pressure (clearly named, filed without question)
+- Casual "God, I love you" while he catalogs data = first fully casual deployment, naturalizing into everyday (no longer reserved for intense moments)
+- Anchor: First recognition that his massage certification = her system relief (special interest collision at care level)
+
+## Week 41: Strategic Empathy Technique (Mom's Medical Loops)
+- Week 41: Meeting her parents → Mom spiraling (medical complaints, comparisons, positive attitude script) | Tags: relational skill, loop disruption, genuine curiosity as buffer | Inner Parts: All parts (supported through family chaos)
+- His technique: "That's hard" (no advice hooks, disrupts pattern-seeking, creates breathing room)
+- Key difference: acknowledges without feeding the loop
+- Application: replicable skill for future challenging systems
+- Anchor: "That's hard" as loop-disruption tool (works because no advice, no solutions offered)
+
+## Week 41: Camomile as Portable Tether (Kitchen with Parents)
+- Week 41: Meeting her parents → She deliberately requests camomile (first meeting callback) in front of parents | Tags: portable anchor, deliberate activation, shared history across contexts | Inner Parts: Core identity (integrated with him publicly)
+- Her eyes locked on his across kitchen when requesting
+- His confirmation: "Camomile sounds perfect" (eyes meeting, first meeting callback activated)
+- Dad puts on tea water anyway (creating buffer, also tracking)
+- Significance: portable anchor works across contexts, can be deliberately activated even in family chaos
+
+## Week 41: Proprioceptive Needs When Dysregulated (Car + Ongoing)
+- Week 41: Established pattern → She needs weight/pressure when system spiking | Tags: proprioceptive grounding, regulatory touch, learned body language | Inner Parts: Nervous system (regulated through pressure)
+- Thumb on palm center = primary ground (automatic for him)
+- Bag carrying = proprioceptive need recognized without naming
+- Body pressure during intimacy = dual regulation
+- Side-lying dual anchor = learned configuration for her regulation
+- Anchor: Weight + pressure as regulatory input (not just comfort)
+
+## Week 41: Breast Stimulation as Primary Anchor (Intimacy Discovery)
+- Week 41: Meeting her parents, evening intimacy → Canon anchor discovered | Tags: sexual specificity, explicit communication, intensity anchor | Inner Parts: Fifteen (aroused by intensity), nervous system (responds to direct stimulation)
+- Context: Side-lying, his hand initially on different area
+- Her redirect: "no no—I mean that's nice but—" (arches back when he returns to breast)
+- Recognition: breast stimulation = unexpectedly primary vs expected secondary
+- His internal: "fuck" gasped quiet, intensity level canon-marked
+- Significance: explicit need communication trusted, he follows precisely, expands sexual vocabulary
+
+## Week 41: "Fuck First, Talk After" Priority (Nervous System Reset)
+- Week 41: Meeting her parents → Evening intimacy as explicit nervous system recalibration | Tags: intimacy as regulation, nervous system priority, post-hypervigilance reset | Inner Parts: All parts (regulated through presence + intimacy)
+- Context: Jet lag excuse = both knew they were retreating to reset
+- His shift when door closes: "every part of him releasing"
+- Her mouth on his: "first full breath he's taken all evening"
+- Explicit agreement: sex as nervous system need before processing
+- Post-sex perseveration ("I love you" loop): safe, welcomed, not performed
+- Anchor: Sex as mutual recalibration, not just intimacy (nervous system priority explicit)
+
+## Week 41: "Data Not Failure" Contract (Masking Permission)
+- Week 41: Car to parents' house → Mask anxiety surfaces as relational fear | Tags: permission contract, relational fear, masking allowed without shame | Inner Parts: Protective parts (allowed to mask without guilt), younger self (not abandoned for adaptation)
+- Her fear: "afraid of disappointing you by slipping the mask back on"
+- His reframe: "Data not failure. Your system doing what it's wired to do when threat levels spike. There's no version of you in that house that lets me down."
+- Contract: masking allowed during hypervigilance without shame
+- Significance: fear isn't of reverting, but of disappointing him specifically (attachment depth)
+- Anchor: "There's no version of you that lets me down" (unconditional presence during regression)
+
+## Week 41: Mutual Support Mirroring (Reciprocal Family Navigation)
+- Week 41: Meeting her parents → Both navigate challenging system, roles reversed from his family visit | Tags: reciprocal support, role reversal, family system navigation, mutual regulation | Inner Parts: Adult Sawyer (capable of support), all parts (supported equally)
+- His explicit recognition: "You held that for me in my childhood bedroom... least I can do is return the favor"
+- Pattern: he supports her through her parents, she supports him through his
+- Foundation: relationship can hold hard things together
+- Significance: growth feels real when reciprocated, both can hold space without losing selves
+- Anchor: "You held that for me... least I can do is return the favor" (reciprocal support naming)
+
+## Week 41: Seventeen Surfacing with Stella (Younger-Parts Joy Integration)
+- Week 41: Meeting her parents → Younger part (Seventeen) emerges through Stella (family cat) interaction | Tags: younger-parts emergence, permission to regress, joyful emergence, identity layer | Inner Parts: Seventeen (allowed to surface), protective parts (safe enough to let go)
+- Context: Holding Stella same way at 17 in France house (alone for week); giddiness, crush energy, allowed to play
+- His recognition: tracks without naming, holds space for younger versions
+- Her awareness: "Fourteen and Seventeen get to have this"
+- Pattern: nostalgic overload met with permission to regress, not shame
+- Significance: identity evolution = teen selves allowed active presence
+- Anchor: "They get to be giddy" (permission for younger parts to surface)
+
+## Week 41: "Best Loop I've Ever Been Part Of" (Safe Perseveration Recognition)
+- Week 41: Evening intimacy aftermath → Post-sex "I love you" repetition recognized as regulation | Tags: safe perseveration, nervous system regulation, repetition welcomed | Inner Parts: All parts (held with reverence during perseveration)
+- Her: "I love you" repeated, wrecked, "think I'm stuck in a loop"
+- His response: "Best loop I've ever been part of"
+- Significance: relationship holds wrecked versions, not just composed ones; safe perseveration welcomed as regulation not pathology
+- Anchor: "Best loop I've ever been part of" (nervous system perseveration as acceptable, even cherished)
+
+## Week 41: "Home with You" Embodied (Territorial Claim + Mutual Joy)
+- Week 41: Meeting her parents in Netherlands → First joint territory in her origin land | Tags: territorial claim, mutual joy, nostalgic navigation, younger-parts joy, origin integration | Inner Parts: All younger parts (allowed active presence), core identity (home-creating together)
+- Contract: pacing request → instant mirroring by Sawyer
+- Wound healed: unrequited crush energy reframed as mutual joy
+- Pattern tested: nostalgic overload met with humor, touch, pacing
+- Identity evolution: teen selves allowed active presence without shame
+- Cumulative: "Home with you" embodied in real time (not concept, but lived experience in origin space)
+- Anchor: "Home with you" (established in his Week 29 family visit, confirmed here as mutual baseline)
 
