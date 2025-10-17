@@ -290,4 +290,43 @@
 ## Whispered Intimacy
 - Week 31: Quiet, controlled sexual interaction → emotional rewriting of space | Tags: intimate communication, sensory regulation, mutual care | Inner Parts: Protective parts (vigilant), nervous system (anchored), all parts (connected)
 
+## "Proudest Fucking Girlfriend" (Identity Claim)
+- Week 5: Hawaii field work offer → she claims identity during first career-relationship collision | Tags: identity claim, relational possession, support-as-foundation, conviction | Inner Parts: Core identity (confident), all parts (invested), protective parts (claiming)
+
+## "You've Already Ruined Me for Anyone Else" (Cemented)
+- Week 5: Hawaii field work offer → conviction stated during separation planning | Tags: verbal anchor, commitment, cemented certainty, no escape hatch | Inner Parts: All parts (committed), core identity (bound), younger self (safe to trust)
+
+## Thesis Statement on How to Be Loved Well
+- Week 5: Hawaii field work offer → his breakdown when she names the contract ("you just gave me a goddamn thesis statement") | Tags: emotional breakthrough, recognition of relational skill, reverent awe | Inner Parts: All parts (undone), younger self (believed in), protective parts (witnessing support)
+
+## Monk Seal Updates (Humor Anchor for Distance)
+- Week 5: Hawaii field work offer → established as expected communication during separation | Tags: humor, distance anchor, shared joy, texture maintenance | Inner Parts: Fifteen (playful), all parts (connected), younger self (entertained)
+
+## "Your Texts Are the Highlight of My Nervous System"
+- Week 5: Hawaii field work offer → established rhythm for two-week separation | Tags: nervous system anchor, text-based regulation, distance tether, reciprocal need | Inner Parts: Nervous system (regulated by her presence), all parts (anchored), core identity (recognized)
+
+## Mali Elephant Memory (Foundational Sharing)
+- Week 8: Hawaii reunion → Mali memory shared for first time (elephant teaching waiting/patience) | Tags: foundational story, patience teaching, vulnerability milestone, shared wisdom | Inner Parts: Core identity (vulnerable), all parts (witnessed), younger self (trusted with story)
+
+## "Soot" Nickname (Her Exclusive)
+- Week 8: Hawaii reunion → nickname established by her during this week | Tags: exclusive nickname, her possession frame, intimacy marker, identity claim | Inner Parts: Core identity (claimed), all parts (named by her), protective parts (belonged to her)
+
+## Shoulder Dislocation & Care Pattern
+- Week 36-37: Pack arrival weekend → left shoulder surfaces burden wound; Pack delivers food unprompted; care received without asking | Tags: burden wound, care received, self-sufficiency broken, Pack reliability, somatic vulnerability | Inner Parts: Protective parts (guarding burden), younger self (allowed to be cared for), all parts (Pack-held)
+
+## Fourteen & Seventeen Surface (Giddy Permission)
+- Week 41: Europe trip border crossing → younger parts emerge joyfully without shame | Tags: younger-parts integration, permission to regress, giddiness, safe emergence, joy-in-body | Inner Parts: Fourteen (giddy, crush energy emerging), Seventeen (playful, allowed), all parts (celebrated)
+
+## Pacing Through Overload ("Please Pace Me")
+- Week 41: Europe trip border crossing → grocery store; he tracks and paces her system during sensory overload | Tags: nervous system co-regulation, explicit request, pacing dynamic, his skill, her trust | Inner Parts: Nervous system (regulated by external pacing), all parts (stabilized), core identity (known/managed)
+
+## "Home with You" (Territory Reframe)
+- Week 41: Europe trip border crossing → her accidental "home" referring to US lands as profound shift; reframed as safe territory with him | Tags: relational reframe, belonging, territory claiming, safety rewrite, new baseline | Inner Parts: All parts (belonged), core identity (safe), younger self (finally home)
+
+## Gray-Gold Border Light (Sensory Anchor)
+- Week 41: Europe trip border crossing → late afternoon light at "Nederland" sign, visual tether for territorial shift | Tags: sensory anchor, environmental marker, transition point, golden safety | Inner Parts: Nervous system (registered), all parts (witnessed), core identity (threshold moment)
+
+## Deadpool Joke in Grocery Store (Chaos Connection)
+- Week 41: Europe trip border crossing → shared humor maintaining connection during sensory overload | Tags: humor, connection maintenance during chaos, special interest anchor, playfulness | Inner Parts: Fifteen (playful), all parts (together), younger self (entertained)
+
 
