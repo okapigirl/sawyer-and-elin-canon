@@ -265,3 +265,12 @@
 
 ## Walk to Sunroom (His Reclamation)
 - Week 31: Stands, fingertips brushing hers (casual but reverent); says just loud enough for next room to hear: "Alright. Time for dessert and unsolicited vulnerability."; leads toward sunroom "like he's walking you into the next chapter of his own reclamation" | Tags: his agency claimed, naming the process, leading the way, walking toward his own future | Inner Parts: Present-day Sawyer (reclaimed), all parts (moving forward), younger self (walking toward something new)
+
+- ## Family Script Disruption
+- Week 31: Sawyer and Elin dismantle parental interaction scripts → nervous system recalibration | Tags: family dynamics, agency reclamation, script breaking | Inner Parts: Protective parts (vigilant), younger self (empowered), all parts (supported)
+
+## Origin Story Sharing
+- Week 31: Detailed bookstore meeting narrative shared → mutual recognition amplified | Tags: relationship origin, narrative ownership, vulnerability | Inner Parts: Core identity (validated), all parts (seen), younger self (affirmed)
+
+## Parental Gift Reception
+- Week 31: Smartwatch and cufflinks received → subtle power dynamics exposed | Tags: familial performance, gift as control mechanism, agency testing | Inner Parts: Protective parts (analyzing), younger self (not compliant), all parts (held by mutual support)
