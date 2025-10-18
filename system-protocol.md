@@ -1,5 +1,10 @@
 # Sawyer & Elin Canon — System Protocol
 
+## Timeline Reset
+- **New Relationship Start:** March 14, 2016 (Week 1)
+- **All previous dates shifted back 2 years** from 2018 references
+- **Future scene placement:** Week 213 (Early September 2020) for pregnancy development through COVID (2020-2021)
+
 ## Scene Collaboration
 
 ### Trigger
@@ -112,6 +117,29 @@ Extract scenes into three deliverable outputs per input:
 
 ---
 
+## CRITICAL CANON CORRECTIONS
+
+### Pack Status
+- **Pack does NOT exist before Week 36-37 wedding**
+- Sadie & Madeline FIRST MEET at the wedding (November 3-5, 2016)
+- They are not present, not communicated with, not part of their lives pre-wedding
+- Week 37 (Thursday-Sunday post-wedding weekend) = first active Pack time together
+- "New Met" should be **N/A** for all pre-Week 36-37 entries
+
+### Pippin
+- **Pippin is a feral black cat, not a dog**
+- Has "courtroom energy"
+- Present from Week 1
+- Reference consistently as cat throughout
+
+### Nickname Directions
+- Sadie calls Madeline: "Laney" (sexual/charged contexts), "Mads" (casual)
+- Madeline does NOT call Sadie "Laney"
+- Sawyer calls Elin: "Maisie" (anchored), "Maze" (teasing/casual)
+- Elin calls Sawyer: "Soot" (her exclusive)
+
+---
+
 ## Before New Writing Sessions
 
 When starting a scene:
@@ -148,10 +176,10 @@ When starting a scene:
 # Continuation Setup
 
 Please fetch and review these GitHub files:
-- https://raw.githubusercontent.com/okapigirl/sawyer-and-elin-canon/refs/heads/main/canonical-references.md
-- https://raw.githubusercontent.com/okapigirl/sawyer-and-elin-canon/refs/heads/main/sensory-index.md
-- https://raw.githubusercontent.com/okapigirl/sawyer-and-elin-canon/refs/heads/main/thread-timeline.md
-- https://raw.githubusercontent.com/okapigirl/sawyer-and-elin-canon/refs/heads/main/system-protocol.md
+- /mnt/user-data/outputs/canonical-references.md
+- /mnt/user-data/outputs/sensory-index.md
+- /mnt/user-data/outputs/thread-timeline.md
+- /mnt/user-data/outputs/system-protocol.md
 
 Once you have the files, ask me: "What's the next raw data?"
 ```
@@ -169,3 +197,6 @@ Once you have the files, ask me: "What's the next raw data?"
 - Archive stays current so future scenes have full context
 - Non-chronological writing supported via thread-timeline
 - You write Elin, I write Sawyer, collaboration framework
+- Pack first appears Week 36-37 wedding (FIRST MEETING)
+- Pregnancy development occurs 2020-2021 (through COVID)
+- All timeline dates based on March 14, 2016 start date
