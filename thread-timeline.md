@@ -65,7 +65,7 @@
 | Tom's Interest in Sketchbook & Animals | Week 31 | Week 31 (sunroom) | → Open |
 | Caroline's Continued Recalibration | Week 31 | Week 31-ongoing | ⟳ Ongoing |
 | Madeline & Sadie's Wedding Weekend | Week 36-37 | Week 36-37 (Friday-Sunday) | ✓ Resolved (wedding executed) |
-| Quad Formation & Active Entry | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing (locked in from wedding) |
+| Quad Formation & Active Entry (FIRST MEETING) | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing (locked in from wedding) |
 | Shoulder Dislocation (Wednesday Post-Wedding) | Week 36-37 | Week 36-37 (Wednesday) | ✓ Resolved (injury occurred) |
 | First Pack Weekend | Week 36-37 | Week 36-37 (Thursday-Sunday post-wedding) | ✓ Resolved (first visit executed) |
 | Inner Parts Public Naming (Four, Seven, Fifteen; Baby, Seven/Eight, Fourteen, Seventeen) | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing (first shared during wedding) |
@@ -76,12 +76,23 @@
 | Madeline & Elin Co-Regulation Breakthrough | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
 | Sadie's Authority & Witnessing | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
 | Europe Trip Preparation | Week 40 | Week 40-41 | → Open |
-| Meeting Elin's Parents (Netherlands, Week 41) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
-| Younger Parts Joy Integration (Fourteen/Seventeen) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
-| Pacing Dynamic During Sensory Overload | Week 41 | Week 41-ongoing | ⟳ Ongoing |
-| "Home with You" Reframe (Territory Claiming) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
-| European Sensory Lexicon & Nostalgia Anchors | Week 41 | Week 41-ongoing | → Open |
-| Netherlands Full Immersion | Week 41 | Week 41-ongoing | → Open |
-| Mask Anxiety Processing | Week 41 | Week 41-ongoing | ⟳ Ongoing |
-| Breast Stimulation Discovery | Week 41 | Week 41-ongoing | ⟳ Ongoing |
-| Strategic Empathy Technique (Meeting Her Family) | Week 41 | Week 41-ongoing | ⟳ Ongoing |
+| Meeting Elin's Parents (Netherlands, Week 31) | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Younger Parts Joy Integration (Fourteen/Seventeen) | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Pacing Dynamic During Sensory Overload | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| "Home with You" Reframe (Territory Claiming) | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| European Sensory Lexicon & Nostalgia Anchors | Week 31 | Week 31-ongoing | → Open |
+| Netherlands Full Immersion | Week 31 | Week 31-ongoing | → Open |
+| Mask Anxiety Processing | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Breast Stimulation Discovery | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Strategic Empathy Technique (Meeting Her Family) | Week 31 | Week 31-ongoing | ⟳ Ongoing |
+| Architect & Future Planning | Week 213 | Week 213-ongoing | ⟳ Ongoing (initiating major life shift) |
+| House Timeline Locked (Architect Ben, Phased Construction) | Week 213 | Week 213-ongoing | ⟳ Ongoing (designs in 1 month, build 18mo-2yr) |
+| Wedding Date Framework (4-6 Months, Legal First) | Week 213 | Week 213 → execution | → Open |
+| Kid Timeline: Stop Being Careful NOW | Week 213 | Week 213-ongoing | ⟳ Ongoing (6mo-1yr realistic conception window) |
+| Parental Trauma Resurfaces (Her Fear of Disappearing) | Week 213 | Week 213-ongoing | ⟳ Ongoing (mother's overwhelm pattern feared) |
+| Pack Structural Support System (Spreadsheet-Based Planning) | Week 213 | Week 213-ongoing | ⟳ Ongoing (Sadie's logistics doc, Madeline's emotional presence) |
+| Location Scouting (Rural-Accessible Model, Sadie & Madeline's as Template) | Week 213 | Week 213-ongoing | → Open |
+| Sexual Contract: Every Time Carries Possibility | Week 213 | Week 213-ongoing | ⟳ Ongoing (named, intentional, feral-claimed) |
+| Cycling Math Spoke Aloud (25% chance, 4 cycles/year, 6mo-1yr realistic) | Week 213 | Week 213-ongoing | ⟳ Ongoing (reproductive autonomy anchored) |
+| Cryptid Sex Reclaimed Domestically (Bathtub → Intimate Planning) | Week 213 | Week 213 | ✓ Resolved (sexual claiming locked in) |
+| Both Committed to "NOW" | Week 213 | Week 213 | ✓ Resolved (mutual yes moment) |
