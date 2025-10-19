@@ -1,9 +1,15 @@
 # Sawyer & Elin Canon — System Protocol
 
-## Timeline Reset
-- **New Relationship Start:** March 14, 2016 (Week 1)
-- **All previous dates shifted back 2 years** from 2018 references
-- **Future scene placement:** Week 213 (Early September 2020) for pregnancy development through COVID (2020-2021)
+## Timeline Reset (LOCKED)
+- **Week 1:** March 14, 2016 (Sawyer & Elin meet)
+- **Week 36-37:** November 2016 (Sadie & Madeline's wedding; Pack integration begins)
+- **Week 190:** Early October 2019 (pregnancy planning conversation)
+- **Week 200:** February 29, 2020 (Sawyer & Elin's wedding)
+- **Week 207-208:** April 2020 (start trying to conceive)
+- **Week 245-248:** December 2020 (pregnancy confirmed, peak COVID winter surge)
+- **Week 275-280:** August 23, 2021 (birth)
+
+---
 
 ## Scene Collaboration
 
@@ -121,9 +127,9 @@ Extract scenes into three deliverable outputs per input:
 
 ### Pack Status
 - **Pack does NOT exist before Week 36-37 wedding**
-- Sadie & Madeline FIRST MEET at the wedding (November 3-5, 2016)
+- Sadie & Madeline FIRST MEET at the wedding (November 2016, Week 36-37)
 - They are not present, not communicated with, not part of their lives pre-wedding
-- Week 37 (Thursday-Sunday post-wedding weekend) = first active Pack time together
+- Week 37+ = first active Pack time together
 - "New Met" should be **N/A** for all pre-Week 36-37 entries
 
 ### Pippin
@@ -198,5 +204,8 @@ Once you have the files, ask me: "What's the next raw data?"
 - Non-chronological writing supported via thread-timeline
 - You write Elin, I write Sawyer, collaboration framework
 - Pack first appears Week 36-37 wedding (FIRST MEETING)
-- Pregnancy development occurs 2020-2021 (through COVID)
+- Pregnancy planning begins Week 190 (October 2019)
+- Wedding February 29, 2020 (Week 200)
+- Pregnancy confirmed Week 245-248 (December 2020, peak COVID)
+- Birth August 23, 2021 (Week 275-280)
 - All timeline dates based on March 14, 2016 start date
