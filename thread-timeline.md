@@ -101,3 +101,4 @@
 | Pregnancy Confirmed | Week 245-248 | Week 245-248 (December 2020, peak COVID) | → Open |
 | Pregnancy Through COVID | Week 245-248 | Week 245-248 → Week 275-280 (birth) | → Open |
 | Birth | Week 275-280 | Week 275-280 (August 23, 2021) | → Open |
+| Elin's Attraction Shift to Sadie's Competence | Week 190 | Week 190-ongoing | → Open (Spreadsheet revelation: system response to organizational competence (new layer beyond platonic); differs from Madeline pattern (physical + emotional from start); reciprocity = she needs to know this registered; potential relational shift pending next in-person Pack interaction where Sadie might weaponize/name it) |
