@@ -186,6 +186,12 @@
 **Why:** She's been the supporter; now she needs holding. His capacity to care for her in her crisis. Her vulnerability in burnout. Testing his commitment in reverse.
 **Expected beats:** His noticing (micro-tells he tracks); her denial; his gentle persistence; her breakdown; his practical + emotional response; canceling things, clearing space; his fierce protection of her rest; intimate moment as reassurance.
 
+### Mutual Overload / Simultaneous Dysregulation + Sensory Mismatch
+**Status:** → Open (placement TBD - likely mid-canon during high-stress period)
+**Context:** Both hit nervous system ceiling simultaneously (his: field work anxiety/family activation/sensory overload; hers: work crisis/burnout/sensory overload); neither has capacity to regulate the other. His reflex: reach for touch/pressure. Her reflex: can't bear sensation, needs space. She can't articulate the boundary in the moment (communication offline); he reads her withdrawal as rejection; both blame themselves for failing the other. No fight—just two people recognizing they can't reach each other right now, surviving separately in the same room.
+**Why:** Tests their framework under real pressure (both maxed simultaneously). Shows vulnerability in the gap between their needs. Reveals that sometimes co-regulation isn't possible. Establishes that surviving separately is sometimes the answer. Later processing: mutual grief + recognition that sometimes you just hold on.
+**Expected beats:** His reach for touch (automatic reflex when flooded); her flinch (barely perceptible, not rejection); her inability to name "I can't" in the moment; his reading of her withdrawal; both going quieter, both inward-blaming; existing in the same space without bridging; later (when less flooded): admission that it sucked, recognition that they survived it, no need to "fix" what couldn't be fixed in that moment.
+
 ---
 
 ## CONTEXT NOTES
