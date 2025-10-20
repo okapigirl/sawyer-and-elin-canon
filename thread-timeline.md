@@ -85,14 +85,19 @@
 | Mask Anxiety Processing | Week 31 | Week 31-ongoing | ⟳ Ongoing |
 | Breast Stimulation Discovery | Week 31 | Week 31-ongoing | ⟳ Ongoing |
 | Strategic Empathy Technique (Meeting Her Family) | Week 31 | Week 31-ongoing | ⟳ Ongoing |
-| Architect & Future Planning | Week 213 | Week 213-ongoing | ⟳ Ongoing (initiating major life shift) |
-| House Timeline Locked (Architect Ben, Phased Construction) | Week 213 | Week 213-ongoing | ⟳ Ongoing (designs in 1 month, build 18mo-2yr) |
-| Wedding Date Framework (4-6 Months, Legal First) | Week 213 | Week 213 → execution | → Open |
-| Kid Timeline: Stop Being Careful NOW | Week 213 | Week 213-ongoing | ⟳ Ongoing (6mo-1yr realistic conception window) |
-| Parental Trauma Resurfaces (Her Fear of Disappearing) | Week 213 | Week 213-ongoing | ⟳ Ongoing (mother's overwhelm pattern feared) |
-| Pack Structural Support System (Spreadsheet-Based Planning) | Week 213 | Week 213-ongoing | ⟳ Ongoing (Sadie's logistics doc, Madeline's emotional presence) |
-| Location Scouting (Rural-Accessible Model, Sadie & Madeline's as Template) | Week 213 | Week 213-ongoing | → Open |
-| Sexual Contract: Every Time Carries Possibility | Week 213 | Week 213-ongoing | ⟳ Ongoing (named, intentional, feral-claimed) |
-| Cycling Math Spoke Aloud (25% chance, 4 cycles/year, 6mo-1yr realistic) | Week 213 | Week 213-ongoing | ⟳ Ongoing (reproductive autonomy anchored) |
-| Cryptid Sex Reclaimed Domestically (Bathtub → Intimate Planning) | Week 213 | Week 213 | ✓ Resolved (sexual claiming locked in) |
-| Both Committed to "NOW" | Week 213 | Week 213 | ✓ Resolved (mutual yes moment) |
+| Architect & Future Planning | Week 190 | Week 190-ongoing | ⟳ Ongoing (initiating major life shift) |
+| House Timeline Locked (Architect Ben, Phased Construction) | Week 190 | Week 190-ongoing | ⟳ Ongoing (designs in 1 month, build 18mo-2yr) |
+| Wedding Date Framework (4-6 Months, Legal First) | Week 190 | Week 190 → Week 200 (execution) | → Open |
+| Sawyer & Elin's Wedding | Week 200 | Week 200 (February 29, 2020) | → Open |
+| Kid Timeline: Stop Being Careful NOW | Week 190 | Week 190-ongoing | ⟳ Ongoing (6mo-1yr realistic conception window) |
+| Start Trying to Conceive | Week 207-208 | Week 207-208 (April 2020) | → Open |
+| Parental Trauma Resurfaces (Her Fear of Disappearing) | Week 190 | Week 190-ongoing | ⟳ Ongoing (mother's overwhelm pattern feared) |
+| Pack Structural Support System (Spreadsheet-Based Planning) | Week 190 | Week 190-ongoing | ⟳ Ongoing (Sadie's logistics doc, Madeline's emotional presence) |
+| Location Scouting (Rural-Accessible Model, Sadie & Madeline's as Template) | Week 190 | Week 190-ongoing | → Open |
+| Sexual Contract: Every Time Carries Possibility | Week 190 | Week 190-ongoing | ⟳ Ongoing (named, intentional, feral-claimed) |
+| Cycling Math Spoke Aloud (25% chance, 4 cycles/year, 6mo-1yr realistic) | Week 190 | Week 190-ongoing | ⟳ Ongoing (reproductive autonomy anchored) |
+| Cryptid Sex Reclaimed Domestically (Bathtub → Intimate Planning) | Week 190 | Week 190 | ✓ Resolved (sexual claiming locked in) |
+| Both Committed to "NOW" | Week 190 | Week 190 | ✓ Resolved (mutual yes moment) |
+| Pregnancy Confirmed | Week 245-248 | Week 245-248 (December 2020, peak COVID) | → Open |
+| Pregnancy Through COVID | Week 245-248 | Week 245-248 → Week 275-280 (birth) | → Open |
+| Birth | Week 275-280 | Week 275-280 (August 23, 2021) | → Open |
