@@ -1,5 +1,19 @@
 | Thread Name | Opened | Active Through | Status |
 |---|---|---|---|
+| Catch-Up Frequency Spike (Post-Separation Pattern) | Week 8 | Week 8-ongoing | ⟳ Ongoing (established pattern: every reunion after separation includes frequency spike; baseline going forward) |
+| Location-Freedom Evolution | Week 8 | Week 8-ongoing | ⟳ Ongoing (wall as first non-traditional surface; begins comfort with "any surface works if it works for them"; leads to less location-concern going forward) |
+| Wall as Location Anchor | Week 8 | Week 8-ongoing | ⟳ Ongoing (first time, becomes repeating location for reclamation moments; right-inside-door becomes recurring dynamic) |
+| Reciprosexuality + Demisexuality Named | Week 8 | Week 8-ongoing | ⟳ Ongoing (first explicit naming; framework for understanding arousal patterns; permission structure locked in) |
+| Blowjob Anxiety Surface Work | Week 8 | Week 8-ongoing | → Open (surfaced but not resolved; deeper processing required; first time externalized + witnessed) |
+| Question-Tag Game (Verbal Intimacy Format) | Week 8 | Week 8-ongoing | ⟳ Ongoing (new format established; becomes repeated pattern for emotional mapping + curiosity-based intimacy) |
+| Fictional Crush Alignment | Week 8 | Week 8-ongoing | ⟳ Ongoing (list convergence discovered; becomes reference point for understanding wiring match across multiple axes) |
+| Food Preference Mapping (Sensory Aversions) | Week 8 | Week 8-ongoing | ⟳ Ongoing (shared sensory food aversions discovered; becomes practical relational efficiency + validation) |
+| Sensory Memory Anchors (Olfactory) | Week 8 | Week 8-ongoing | ⟳ Ongoing (sandalwood + leather-tobacco established as nervous-system anchors; his scent = her new safe-smell) |
+| Proposal-Joke Framework (Soy Sauce Packet) | Week 8 | Week 8-ongoing | ⟳ Ongoing (reaffirmed as safe, repeatable, permission-based; "It's always yes" = her commitment phrasing) |
+| Massage as Integrated Care-Intimacy | Week 8 | Week 8-ongoing | ⟳ Ongoing (established as part of nervous-system-care ecosystem; not separate from sexual intimacy) |
+| Full-Contact Sleep Baseline | Week 8 | Week 8-ongoing | ⟳ Ongoing (chest-to-chest, synchronized breathing = default sleep position; full contact maintained through unconsciousness) |
+| Soot Nickname (Her Exclusive Term) | Week 8 | Week 8-ongoing | → Open (established this week post-trauma-release, exact origin scene TBD; becomes her exclusive endearment parallel to his Maisie/Maze) |
+
 | Bad Partner Wound | Week 1 | Week 1-5 | ✓ Resolved (countered Week 5, further confirmed Weeks 6-7) |
 | Pack Integration | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
 | Shoulder Injury & Care Pattern | Week 36-37 | Week 36-37-ongoing | ⟳ Ongoing |
