@@ -140,4 +140,28 @@
 | Emotional Cleanup Framework (Residue vs. Stains) | Week 8 | Week 8-ongoing | ⟳ Ongoing (major work complete, smaller work remains; stains may stay, sharp edges off; permission to believe progress without expecting perfection) |
 | Command Mode Insecurity + Arousal Simultaneous | Week 8 | Week 8-ongoing | ⟳ Ongoing (his doubt + his feral wanting coexist; insecurity managed through her response; chaos fully online alongside precision; real ≠ perfect) |
 | Orgasm Timing as His Decision (Sexual Contract Shift) | Week 8 | Week 8-ongoing | ⟳ Ongoing (she comes first, he continues for his release; his pleasure prioritized as separate act; sexual claiming from dominant position = his choice; new baseline going forward) |
-
+| Thread Name | Opened | Active Through | Status |
+|---|---|---|---|
+| Inner Child Work: All Three Parts Integrated | Week 8 | Week 8-ongoing | ⟳ Ongoing (Four-year-old, seven-year-old, fifteen-year-old all accessed, held by Elin, told "you're safe now" by adult Sawyer, integrated into present system) |
+| Elin as Reparenting Presence | Week 8 | Week 8-ongoing | ⟳ Ongoing (established during inner child work, becomes template for how she shows up for his vulnerability) |
+| Post-Trauma Sex Preparation Framework | Week 8 | Week 8 (Day 3-4) | ✓ Resolved (inner child work completes before intimate reconnection; all parts safe confirmed before sex) |
+| Elin Leading: Power Dynamic Discovery | Week 8 | Week 8-ongoing | ⟳ Ongoing (established during snack break, becomes repeating dynamic; her agency in command, his trust in following, both surprised at depth) |
+| Her Commanding Voice (No Shame) | Week 8 | Week 8-ongoing | ⟳ Ongoing (discovered during leading phase, becomes validated + desired + repeatable) |
+| His Compliance Framework (Trusting Her Lead) | Week 8 | Week 8-ongoing | ⟳ Ongoing (established during her leading, his immediate respect for her commands, becomes template) |
+| Feedback Loop as Foundation for Her Leading | Week 8 | Week 8-ongoing | ⟳ Ongoing (she requests feedback, he provides detailed data, she adjusts, confidence builds) |
+| Breast Stimulation Discovery (Context-Dependent) | Week 8 | Week 8-ongoing | ⟳ Ongoing (first discovered during her leading phase, arousal anchor established) |
+| Wrist Restraint Introduction (Bathrobe Belt) | Week 8 | Week 8-ongoing | ⟳ Ongoing (first use during her leading phase, bathrobe belt as texture-specific anchor, repeatable/refinable) |
+| Her Agency Without Performance | Week 8 | Week 8-ongoing | ⟳ Ongoing (discovered during leading phase that she can command without shame/performance, becomes baseline) |
+| Her Discovery: Pressure Dissolved When Safe | Week 8 | Week 8-ongoing | ⟳ Ongoing (realization that assumed incompetence created paralysis, safety enabled capability) |
+| "I Am Feral. I Am Soot." (Mode Emergence) | Week 8 | Week 8-ongoing | ⟳ Ongoing (emerges post-leading-phase, codified as relational mode, becomes reference point for future) |
+| Soot Mode as Distinct Relational State | Week 8 | Week 8-ongoing | ⟳ Ongoing (distinct from Maisie/Maze/Elin; feral + intimate + reverent + unfiltered simultaneously) |
+| Soot Sprites & Pippin Connection (Running Joke) | Week 8 | Week 8-ongoing | ⟳ Ongoing (connects Soot-mode to fandom + their actual cat, humor + affection fused) |
+| Future Family Desire: Mutual Recognition | Week 8 | Week 8-ongoing | ⟳ Ongoing (mutual + simultaneous recognition; no convincing needed) |
+| "Our Son Just Fell Asleep" (Future-Family Mention) | Week 8 | Week 8-ongoing | ⟳ Ongoing (casual mention lands hard, becomes reference for future-family-to-come) |
+| Non-Urgency as New Baseline (Peace Doesn't Scare) | Week 8 | Week 8-ongoing | ⟳ Ongoing (established during room service moment, reframes entire approach to future-building) |
+| Deadline-Removal From Major Life Decisions | Week 8 | Week 8-ongoing | ⟳ Ongoing (future unfolds on own timeline, not forced into itinerary) |
+| Wildlife Metaphor: 'Io Landing Framework | Week 8 | Week 8-ongoing | ⟳ Ongoing (shared framework for relating to future-milestones, present-moment celebration valued equally) |
+| Future-Building Philosophy: Life-As-Preparation | Week 8 | Week 8-ongoing | ⟳ Ongoing (present-moment living as foundation for future appreciation, removes anxiety-based planning) |
+| Dr. Hollis as Sexual Claim | Week 8 | Week 8-ongoing | ⟳ Ongoing (name used during sex as identity-claiming, established during post-processing-intimacy) |
+| Post-Inner-Child-Work Confidence | Week 8 | Week 8-ongoing | ⟳ Ongoing (both enter post-processing sex with integrated parts, confidence visible) |
+| Autonomy + Joint Choice (Post-Inner-Child-Work) | Week 8 | Week 8 (Day 3-4) | ✓ Resolved (her grounding phrase "You're yours. And I'm mine. And we choose each other." establishes before intimate reconnection) |
