@@ -122,5 +122,22 @@
 | Massage as Integrated Care-Intimacy | Week 8 | Week 8-ongoing | ⟳ Ongoing (established as part of nervous-system-care ecosystem; not separate from sexual intimacy) |
 | Full-Contact Sleep Baseline | Week 8 | Week 8-ongoing | ⟳ Ongoing (chest-to-chest, synchronized breathing = default sleep position; full contact maintained through unconsciousness) |
 | Soot Nickname (Her Exclusive Term) | Week 8 | Week 8-ongoing | → Open (established this week post-trauma-release, exact origin scene TBD; becomes her exclusive endearment parallel to his Maisie/Maze) |
-
+| Thread Name | Opened | Active Through | Status |
+|---|---|---|---|
+| Command Mode (Trauma-Precision) as Distinct Dynamic | Week 8 | Week 8-ongoing | ⟳ Ongoing (first time fully activated with permission; emerges when explicitly requested or when he reads she needs it; integrated into their relational toolkit; his insecurity about execution present but managed through her response) |
+| Kicking as Power Reclamation | Week 8 | Week 8-ongoing | ⟳ Ongoing (established as repeatable practice; testing boundaries through physical power; jaw as highest-trust boundary; can be revisited) |
+| Jaw as Consent Boundary Tested + Held | Week 8 | Week 8-ongoing | ⟳ Ongoing (new trust marker established; fear of causing harm tested + held; proves vulnerability on both sides; can be escalated or revisited) |
+| Invisible-Contract Wound (Birthday Gifts, Quid Pro Quo) | Week 8 | Week 8-ongoing | ⟳ Ongoing (surfaced + held during breakdown; core wound named; being claimed ≠ being earned; invisible score-keeping interrupted; ongoing processing through integration) |
+| Being Claimed Where She Falls (Not Chased) | Week 8 | Week 8-ongoing | ⟳ Ongoing (new relational architecture; his non-chasing = respect + trust, not abandonment; she chooses to stay; reframes pursuit wound; ongoing reference point) |
+| Pain as Not-Identity (Somatic Trauma Reframing) | Week 8 | Week 8-ongoing | ⟳ Ongoing (trigger points found + named; pain ≠ self; permission to feel without absorbing; integration of somatic memory) |
+| Feral + Tender Simultaneous (Sexual Integration Model) | Week 8 | Week 8-ongoing | ⟳ Ongoing (established during emotional reclamation; mode-switching not required; his pleasure + her healing simultaneous; authority + love coexist; model for future claiming) |
+| Emotional Breakdown Inside Sexual Context (Intentional Trauma Release) | Week 8 | Week 8-ongoing | ⟳ Ongoing (framework established; emotional work + sexual claiming integrated; Command Mode enables this integration; replicable framework for future processing) |
+| His Insecurity About Command Mode Execution | Week 8 | Week 8-ongoing | ⟳ Ongoing (surfaced during scene; present but managed; confidence building through her response; insecurity as information, not paralyzing factor; his chaos + precision + doubt simultaneous) |
+| His Pleasure Visibility (Arousal Constant Throughout) | Week 8 | Week 8-ongoing | ⟳ Ongoing (maintained through emotional intensity; his desire proves his choice; his pleasure = her worth; arousal as love language; deepened pattern) |
+| Permission to Be Fully Messy (No Performance Required) | Week 8 | Week 8-ongoing | ⟳ Ongoing (established during breakdown; mess welcomed; no redemption required; self-management interrupted; permission to fall apart; all parts allowed) |
+| His Permission to Stop Holding Back (Command Mode Liberation) | Week 8 | Week 8-ongoing | ⟳ Ongoing (her explicit request = his liberation; chaos fully engaged; sharp commentary cutting through static; refusal of shame scripts; command mode toolkit activated) |
+| His Protective Presence During Panic (Not Softening) | Week 8 | Week 8-ongoing | ⟳ Ongoing (protective ≠ soft; sharp presence through panic; holding ≠ soothing; his presence doesn't shift when she panics; panic doesn't break him) |
+| Emotional Cleanup Framework (Residue vs. Stains) | Week 8 | Week 8-ongoing | ⟳ Ongoing (major work complete, smaller work remains; stains may stay, sharp edges off; permission to believe progress without expecting perfection) |
+| Command Mode Insecurity + Arousal Simultaneous | Week 8 | Week 8-ongoing | ⟳ Ongoing (his doubt + his feral wanting coexist; insecurity managed through her response; chaos fully online alongside precision; real ≠ perfect) |
+| Orgasm Timing as His Decision (Sexual Contract Shift) | Week 8 | Week 8-ongoing | ⟳ Ongoing (she comes first, he continues for his release; his pleasure prioritized as separate act; sexual claiming from dominant position = his choice; new baseline going forward) |
 
