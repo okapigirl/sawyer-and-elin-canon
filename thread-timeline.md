@@ -123,3 +123,4 @@
 | Full-Contact Sleep Baseline | Week 8 | Week 8-ongoing | ⟳ Ongoing (chest-to-chest, synchronized breathing = default sleep position; full contact maintained through unconsciousness) |
 | Soot Nickname (Her Exclusive Term) | Week 8 | Week 8-ongoing | → Open (established this week post-trauma-release, exact origin scene TBD; becomes her exclusive endearment parallel to his Maisie/Maze) |
 
+
