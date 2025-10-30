@@ -1,4 +1,4 @@
-# Sensory Index (De-duped)
+# Sensory Index 
 
 ## Forehead-to-Forehead
 - Week 1: Reset button during rain walk home conversation → grounding when she's overwhelmed | Tags: grounding, regulation, intimacy, safety | Inner Parts: Younger self (soothed), all parts (anchored)
@@ -276,3 +276,196 @@
 - Context: Madeline can't wait; Sadie manages the hold strategically; both confirmed in support commitment despite distance
 - Tags: Pack dynamics, remote coordination, Madeline's emotional overflow, Sadie's tactical management, signal = presence guarantee
 - Inner Parts: Madeline (burning with joy, needing outlet), Sadie (containing and directing energy), all four (connected across distance)
+
+## Anchor Family: Hair-Washing & Emotional Opening (Week 8)
+```
+Hair-Washing Vulnerability
+
+Week 8: Shower ritual, post-intimacy, morning
+Context: First time she asks to wash his hair; he's surrendered his back-of-head as previously off-limits; steam-hazed bathroom, both towel-wrapped, slow reverent touch
+Trigger/Response: Her asking "You want me to wash your hair?" → his "Yeah" (single-word surrender); him allowing her hands on previously defended space; emotional opening through care-giving; his tears/overwhelm at being tended to; her hands in his hair as permission for all of him to be held
+Tags: vulnerability, body reclamation, care-as-connection, emotional opening, trust escalation, first-time access
+Inner Parts: All parts (vulnerable, held), younger self (safe enough to need), protective parts (standing down)
+Connects to: You Made It Feel Like Mine Again; Care-as-Connection; All touch-based anchors
+
+---
+
+You Made It Feel Like Mine Again
+
+Week 8: Shower ritual, back-of-head touch
+Context: He names that she's made his previously traumatized back-of-head touch-safe again; she's reclaimed that space through gentle, present care; his response to her touching the back of his head where he was always braced
+Trigger/Response: Her hands in his hair, touching the back of his head; his emotional response: "You made it feel like mine again"
+Significance: Body-trauma reclamation; trust in her touch so deep he can surrender his most-defended space; he gets his own body back
+Tags: trauma reclamation, body safety, trust escalation, touch-based healing, ownership reclamation
+Inner Parts: Protective parts (standing down), younger self (safe enough to be vulnerable), Four (compliance wound healing)
+Connects to: Hair-Washing Vulnerability; Back-of-Neck Biting; All protective-parts anchors
+```
+
+## Anchor Family: Body-Mapping & Sensory Naming (Week 8)
+```
+Stomach Hyperfixation Naming
+
+Week 8: Shower + hotel room transition
+Context: She admits her body-image spiral around stomach; he listens without fixing; she names specific anxieties (bulge, angles, clothing fit); he reframes through data (movement vs. still-frame; it's not a failure to achieve stillness)
+Trigger/Response: Her: "I've grown pretty okay with my breasts... but stomach is the main event"; him: gentle touch + narration ("I notice movement, not bulge"; "it shifts when you walk"; "you're trying to achieve a still frame that's impossible to maintain"); her realization: ("didn't realize I was trying to achieve a fixed image")
+Significance: Body-image wound begins reframing through his precise observation; her hyperfixation becomes data instead of failure; "movement is the point" becomes accessible truth; he sees her body as dynamic, not static failure
+Tags: body image, hyperfixation, nervous system reframe, sensory data, acceptance, movement vs. stillness, data-based reframing
+Inner Parts: Her vulnerable/ashamed parts (heard, held, reframed), all parts (permission to have a body that moves)
+Connects to: Movement-based arousal (his later countdown system uses motion + time); Body acceptance; Nervous system reframing
+
+---
+
+Green Day Lyric + Kiss (Redundant)
+
+Week 8: Shower ritual, steam-hazed bathroom
+Context: She sings Green Day's *Redundant*: "I cannot speak, I've lost my voice / speechless and redundant / 'cause I love you's not enough, I'm lost for words…" then kisses him like it's the only way to say the rest
+Trigger/Response: Her singing + kissing = his tattoo moment ("I think my nervous system just tattooed that moment onto my spine"); full-body overwhelm; recognition that words fail + body-language completes; him understanding that this moment is now *permanently etched* into his nervous system
+Significance: Verbal trigger (Green Day) fused with physical intimacy; "I love you is not enough" becomes permission to love bigger than words; music + body + emotion = complete communication; she's saying with her body what words can't reach
+Tags: verbal anchor, music, fused sensory, overwhelm, body-language completion, emotional expression beyond words, permanent nervous-system imprint
+Inner Parts: All parts (seen, felt, loved beyond articulation), Fifteen (feral + reverent simultaneous), nervous system (tattooed with this moment)
+Connects to: Special Interest Collision (music, Sawyer's composition); Verbal Triggers (expanded definition); Music as Nervous System Anchor
+```
+
+## Anchor Family: Shared Zoology (Week 8, National Park)
+```
+Zoologist-Mode Activation + Her Matching Expertise
+
+Week 8: National Park hike, midday
+Context: Sawyer enters full zoologist mode (narrating animal behavior: otters holding hands, snails' mucus trailing, crows' intelligence, lemurs' sun-bathing, cuddle piles); Elin matches his intensity with her own devoted-observer knowledge (Nico the sloth, squirrel monkeys, lemur colonies, gecko behavior, wheelchair incident)—not as professional colleague but as someone whose sustained attention = deep expertise
+Trigger/Response: His animated facts → her "you have no idea how fucking good you look getting this excited and backing it up with science" → mutual escalation of animal-fact trading; both spiraling with cuteness-overload + love-overload; nervous systems synchronized in quiet tracking (wilderness patience, still-presence, sensory attunement)
+Significance: First time she enters his world fully (not just supporting his interest, but *inhabiting* it with matching nervous-system wiring); mutual special-interest collision at identity level; he sees her track wildlife like he does (quiet, patient, hidden, observant); she sees his animated brilliance + trusts it; they recognize each other's wiring across different expertise-positions (researcher + devoted observer)
+Tags: special interest collision, expertise-matching, mutual fluency, wilderness-presence, identity-level wiring match, animated brilliance + quiet tracking, nervous system synchronization, researcher + visitor dynamic
+Inner Parts: Core identity (claimed, recognized), all parts (matching patterns), nervous system (synched in wilderness mode)
+Connects to: Special Interest Collision (Ryan Reynolds/Deadpool axis expanded to include shared animal-behavior axis); Mutual Expertise Recognition; Nervous System Matching; Stimming Witnessed & Honored
+
+---
+
+Nico the Sloth Story
+
+Week 8: National Park hike, animal-facts exchange
+Context: [REPARATIVE FICTION CONTEXT: This is a real memory shared during childhood story co-creation] She shares her zoo-visitor memory of Nico the sloth: she spotted him during her visit, he escaped to the ceiling beam, moved slowly across it despite caregiver efforts, she witnessed his autonomy + stubbornness, caregiver had to coax him down with pole, he changed his mind mid-rescue, eventually succeeded but took forever; next visit, they'd added plastic curtains (how often had he done this?); she had annual zoo subscription, recognized lemurs/gorillas by name through repeated visits, personal relationship to specific animals through observation
+Trigger/Response: Her storytelling + his amazement → "that's cool" recognition → later callback: he wants to visit that zoo someday, meet her in her world the way she's meeting him in his; recognition that her passion runs as deep as his
+Significance: Her world-building through *observation* (not professional, but deeply personal); her compassion for animal autonomy even when inconvenient; his recognition that her care for animals matches his own; her sustained attention = legitimate expertise
+Tags: zoo-visitor expertise, animal observation, sustained attention, personal investment through repeated visits, animal autonomy respect, conservation-focused zoo choice, devotion through presence
+Inner Parts: All parts (valued in her expertise), younger self (her world matters too), core identity (her knowledge is real knowledge)
+Connects to: Shared Zoology Expertise; Special Interest Collision; Mutual World-Recognition; Elin's Creative Obsession Pattern
+
+---
+
+Squirrel Monkey Encounters
+
+Week 8: National Park hike, during shared animal-facts exchange
+Context: She shares her squirrel-monkey experiences as devoted zoo visitor: they used her as stepstool (regular occurrence, she'd sit in designated spot), sat on her head twice, tried to steal her glasses, pulled her hair out of braids (she loved it but it hurt), nearly ate paper from her pocket (she caught it + snatched it back, no harm done), grabbed wheelchair control stick on slope (chaos, near-accident, zoo staff managed it)—all moments where she was present + observant + compassionate even when inconvenient
+Trigger/Response: His "oh my god" recognition → her gleeful recounting → mutual "that's the best thing I've ever heard"; he offers to visit that specific zoo, promises to get her raided by squirrel monkeys as a date; their future-planning now includes this shared mission
+Significance: Her expertise + playfulness + compassion for animal autonomy even when inconvenient (hair-pulling hurts but "I want this"); her presence in the zoo = place where she's fully herself; his recognition that he wants to *inhabit her world* the way she's inhabiting his
+Tags: animal interaction, patience, playfulness, bodily boundaries respected (interrupting when it hurt), joy in animal wildness, visitor observation, presence-based expertise
+Inner Parts: Core identity (her special interest recognized), all parts (valued), Fifteen (playfulness + adventure)
+Connects to: Shared Zoology; Mutual World-Recognition; Future Planning (zoo trip locked in); His Commitment to Entering Her World
+```
+
+## Anchor Family: Reparative Childhood Story — Little Sawyer & Little Elin [REPARATIVE FICTION — maps to real childhood patterns]
+```
+Library Meeting (Age ~11-12) [REPARATIVE FICTION]
+
+Week 8: National Park hike, during childhood story co-creation
+Context: [SHARED IMAGINATION/REPARATIVE FICTION] They imagine meeting at library; she sees his drawings, brings him a 'how to draw fantasy' guide he hasn't discovered yet; she keeps coming back hoping to catch him; one day at school event she sits next to him despite not being in his class (terrified, beet red); they make eye contact across crowds; later at library they begin silent communication through drawings
+Significance: Maps to REAL patterns—both were library kids, both drew/created, both felt isolated in their special interests, both would have *recognized* each other; this reimagines what they *could have had* had they met earlier
+Tags: childhood reparation, imagined history, library as safe space, recognition across isolation, shared interests, nervous-system match from childhood
+Inner Parts: Little Sawyer (not alone), Little Elin (found), both younger selves (met before trauma compounded)
+Note: This is fiction they're creating together; it's not a memory, but it *feels* like a memory because the emotions + patterns are real
+Connects to: Proposal-Joke Framework (emerged from this story); "Not Not-Now" Kid Timeline; Reparative Childhood Story family
+
+---
+
+Map in Mailbox [REPARATIVE FICTION]
+
+Week 8: National Park hike
+Context: [SHARED IMAGINATION] She writes him a note with her address on a map, just slides it over at library; signs it "Elin"; he marks her house on the map, recognizes how close she lives; marks his own house + sends it back
+Significance: Maps to REAL patterns—both process through written communication, both use maps/spatial thinking, both would have been terrified + excited by proximity + direct acknowledgment
+Tags: childhood reparation, written communication, spatial recognition, proximity realization, vulnerability, direct naming
+Inner Parts: Both as teenagers (brave enough to be direct, scared enough to need the map as buffer)
+Connects to: Reparative Childhood Story family; Communication Patterns; Childhood Parts Integration
+
+---
+
+Letters (Tea-Stained Paper) [REPARATIVE FICTION]
+
+Week 8: National Park hike
+Context: [SHARED IMAGINATION] After that first mailbox exchange, they start writing letters through the year (both separated by school/family); tea-stained paper, folded weird, trembling fingers, full doodles, emotional intensity, staying up late to write, immediate sending, clutching the paper the whole way home in the car
+Significance: Maps to REAL patterns—both are writers, both process through written word, both have time-separated cycles (then holidays, now field work), both document their connection obsessively
+Tags: childhood reparation, written intimacy, sustained correspondence, paper + doodles as language, emotional documentation
+Inner Parts: Both as teenagers (desperate for connection, brave enough to write it down, scared enough to only be brave on paper)
+Connects to: Reparative Childhood Story family; Communication Patterns; Text-Rhythm During Separation (which echoes this pattern)
+
+---
+
+Tree First Kiss (Age 17) [REPARATIVE FICTION]
+
+Week 8: National Park hike, during childhood story co-creation
+Context: [SHARED IMAGINATION/RECREATED IN PRESENT] Final evening of a summer reunion (around age 17); they're hugging by a tree; she nuzzles his temple; her lips brush his skin; she realizes how close her mouth is to his mouth; she kisses his cheek; then the corner of his mouth; his forehead taps hers (consent without words); then the frisbee hits him (nature interrupts); they jump apart; raccoons/squirrel chaos ensues; they don't kiss fully that summer; "not yet, idiots" from the forest; she goes home, they text intensely all year about *next summer*; *next summer* finally arrives, she waits at the tree, he runs, they embrace, she does the cheek→corner-of-mouth→full-kiss progression again, this time he leans in + matches it; they kiss softly, carefully, like they've been waiting years for this (they have); it lands as teenage first kiss healing for both of them
+Significance: Maps to REAL patterns—both had limited/awkward romantic experience before each other, both would have been intensely focused + careful, both would have wanted the other person *so much* it hurt; this gives them access to what teenage romance *could have been* if they'd found each other earlier; when they recreate it *now* (at the tree during hike, full-body present, uninterrupted), they're giving their younger selves the uninterrupted kiss, the continuation, the *yes* that got forestalled by frisbees + raccoons
+Tags: childhood reparation, imagined first kiss, teenage romance, interruption + return, careful + reverent, healing through imagination, present-tense recreation of imagined past
+Inner Parts: Both as seventeen (tender, desperate, careful, wanting, scared); both as present-day adults holding those younger versions + giving them what they needed
+Note: The RECREATION of this kiss (at the tree during the actual hike) is what makes this healing—they're not just imagining it, they're *living* it now, uninterrupted
+Connects to: Reparative Childhood Story family; Childhood Parts Integration; Present-Day Kiss (which is both playful + deeply healing because it's *also* their seventeen-year-old selves getting their moment)
+
+---
+
+Coyote Boy & Orb Girl (Childhood Alter-Egos) [REPARATIVE FICTION]
+
+Week 8: National Park hike, childhood story core
+Context: [SHARED IMAGINATION] Their childhood imaginary-selves: Little Sawyer = "Coyote Boy" (his solo coyote-based world-building, drew himself as coyote, isolated special interest); Little Elin = "Orb Girl" (girl with glowing orb + animal companion, drawing-based, also isolated); they imagine these two characters meeting in their imaginary worlds, growing up together, becoming partners; the story they rebuild is literally *Coyote Boy meets Orb Girl*
+Significance: Maps to REAL patterns—he actually *did* do coyote-based world-building as a kid; she actually *did* draw girls with animal companions + orbs; these aren't random names, they're pulling from what they *actually* created as isolated children; the reparative work is saying "these two lonely kids find each other *now* and grow up together in that shared imaginary space"
+Tags: childhood reparation, alter-ego meeting, imaginary-world merging, isolated + recognized, creative self-meeting, childhood wiring match
+Inner Parts: Little Sawyer/Coyote Boy (not alone), Little Elin/Orb Girl (found), both (their creative selves meet their actual selves)
+Connects to: Reparative Childhood Story family; Special Interest Collision; Creative Self-Recognition; Present-Day Selves Parenting Their Younger Selves
+```
+
+## Anchor Family: Proposal-Joke Framework & Timeline Softening (Week 8)
+```
+Proposal-Joke Permission Structure
+
+Week 8: National Park hike, during childhood story climax
+Context: He's been making proposal jokes (teasing, joking, "I'm this close to proposing"); during the childhood story climax, when they're fully emotionally open, she realizes she's been half-holding back her yes—afraid of rushing, afraid of pressure; she gives explicit permission: keep asking, keep saying yes, no pressure required, because it's *already* true; they lock in that proposal jokes can keep happening, can keep getting serious yes-answers, without forcing timeline
+Trigger/Response: His proposal jokes throughout hike → her internal fear they might unravel something → her realization: they won't unravel it, she's just been protecting against pressure → her explicit permission ("Fucking yes, Sawyer") + framework ("we can keep making all the proposals—jokes and not—while knowing the real thing will happen later when it's time")
+Significance: Permission structure = safety structure; she's saying "you can ask, I can say yes, neither of us has to rush"; allows for playful escalation + serious commitment simultaneously
+Tags: proposal jokes, permission, safety framework, timeline softening, playful + serious, mutual yes-ing, no pressure
+Inner Parts: Both all parts (safe enough to commit without rushing)
+Connects to: "Not Not-Now" Kid Timeline; Wedding Framework (Week 190+); Future Planning; Proposal-Joke Callbacks (ongoing)
+
+---
+
+"Not Not-Now" Kid Timeline Phrasing
+
+Week 8: National Park hike, childhood story climax
+Context: She articulates the kid timeline as "not not-now"—meaning it will happen (it's locked in), but not urgently, safely, when they know; they establish this during the childhood story work because the story itself is about time + finding each other eventually; "not not-now" = it's true, it's safe, it will be, we don't have to chase it
+Trigger/Response: Her realizing that before Sawyer she'd be rushing ("if it's gonna be true, why not now?") or staying on edge ("when will it happen?"); with him, she's able to say "it'll happen, and I'm okay not knowing exactly when"; his response confirms: "We'll know when it's time. I know we will."
+Significance: Timeline framework = nervous system permission; they're saying "we can commit to this future without white-knuckling the timeline"; especially resonates because they've just imagined growing up together across *years* of separation + reunion (summer holidays, letters, waiting)
+Tags: timeline phrasing, kid planning, safety, nervous system permission, future-locked but not-rushed, playful-serious commitment
+Inner Parts: Both all parts (able to hold future + present simultaneously without panic)
+Connects to: Proposal-Joke Framework; Wedding Timeline (Week 190+); Pregnancy Planning (Week 190+)
+```
+
+## Anchor Family: Countdown Timer System & Precision Math as Arousal (Week 8)
+```
+Countdown Timer System (Odd Numbers + Nested Timing)
+
+Week 8: National Park hike + gift shop, late afternoon
+Context: During the gift shop planning, he introduces a countdown timer system: odd-numbered time intervals (not rounded up), nested timers (timer within timer), escalating specificity ("17 minutes left," "4 minutes and 11 seconds," "90-second timer," "tick tock"); she experiences full system-spike arousal at the precision + the nested structure + the odd numbers themselves
+Trigger/Response: Him: "How long until we need to leave?" → her calculating → him naming it as math-based system → "17 minutes left" lands → she glitches ("my brain is—"); him escalating with "four minutes and eleven seconds" → she goes into shock; him adding 90-second timer + "tick tock" → she's completely undone; her realization: "You know on those autism tests where they ask about patterns/numbers? I always said no. And now _you_ arrive with your internal chronometer and odd amounts…_fuck_"
+Significance: Pattern recognition spike; her discovering she *does* have number/pattern hyperfocus, just never knew she did because she'd never met someone precise enough to trigger it; his precision math = arousal trigger previously unknown to exist in her system; they're discovering new wiring through his presence
+Tags: precision math, odd numbers, nested timing, pattern recognition, autistic-specific arousal trigger, internal chronometer, nervous system optimization, new-wiring discovery
+Inner Parts: All parts (discovering new capacity for arousal/recognition), nervous system (finding resonance with precision)
+Connects to: Special Interest Collision; Nervous System Matching; Stimming; System-Spike Moments
+
+---
+
+Odd-Number Timing as Arousal Layer
+
+Week 8: National Park, countdown system
+Context: Specifically the *odd* numbers (43 seconds, 32 seconds, 7.5 minutes, etc.) instead of rounded numbers trigger her more intensely than he anticipated; she realizes this is the exact kind of *unnecessary precision* that she finds beautiful + arousing
+Trigger/Response: Her: "I always answered 'not really' on tests about number patterns"; him: "40-43 seconds" instead of "about 40 seconds" → her system recognizing the exactness + refusing to round → full-body response
+Significance: Hyperfocus pattern recognition activated; she discovers *precision is beautiful to her*; his carefulness in not rounding = love language she didn't know existed
+Tags: odd numbers, unnecessary precision, pattern recognition, beauty in specificity, autistic sensory appreciation, arousal trigger
+Inner Parts: All parts (recognizing beauty in precision)
+Connects to: Countdown Timer System; Math-Based Arousal; Special Interest Collision
