@@ -1,5 +1,162 @@
 # Sensory Index 
 
+Wall Sex (First Time)
+
+Week 8: Airport reunion through hotel arrival, evening
+Context: First sexual reconnection after 2-week separation; immediate, wordless, intense; wall becomes surface for claiming; minimal negotiation because both bodies already synced; emotional tether + physical intensity simultaneous
+Trigger/Response: Her running into his arms at airport → full-body hug → escalation through car + hotel check-in → pinned against wall the moment door closes; his "pin you against the wall" naming → her surrender; no hesitation, no discussion, just reclamation
+Significance: First time they use non-traditional surface without second-guessing it; location-freedom begins; intensity = reclaiming after separation; wall texture + his strength + her surrender = embodied reunion
+Tags: location-freedom, reclamation, separation-cycle completion, intensity without buildup, emotional tether during sex, wall as location anchor
+Inner Parts: All parts (reunion euphoria), Fifteen (feral claiming), younger self (proving it's still real)
+Connects to: Location-Freedom Evolution; Catch-Up Frequency Pattern; Sexual Reclamation Pattern; Separation/Reunion Cycle
+
+---
+
+Catch-Up Frequency Spike (Post-Separation Pattern)
+
+Week 8: Established during Hawaii arrival, becomes baseline going forward
+Context: After 2-week separation, sexual frequency spikes to "catch up"; intensity high, frequency high, both bodies remembering each other through sex; this pattern repeats every separation going forward
+Trigger/Response: Reunion intensity → wall sex → room service break → evening sex implied → multiple rounds through night; body's urgency at reconnection
+Significance: Post-separation = not just one intense moment, but multiple rounds; nervous systems recalibrating through sex; this becomes the established pattern (whenever separated, expect catch-up spike when reunited)
+Tags: post-separation pattern, frequency spike, reclamation cycle, baseline pattern, nervous system recalibration
+Inner Parts: Both all parts (reunion-driven), Fifteen (feral + insatiable)
+Connects to: Separation/Reunion Cycle; Sexual Frequency Baseline; Location-Freedom Evolution
+
+---
+
+Jetlag Chaos & Teasing (Reunion Energy)
+
+Week 8: Car ride + hotel check-in, arrival day
+Context: Both exhausted + giddy; teasing about gear-shifting, road safety, elevator antics; physical escalation through semi-public spaces; jetlag-drunk energy = filter-free teasing
+Trigger/Response: Car banter about his driving + her distraction → hip-grabbing in elevator → whispered innuendo; both vulnerable to jetlag-induced giddiness + physical escalation
+Significance: Jetlag removes some filters; teasing becomes foreplay; public spaces (elevator) acceptable for escalation because both are too out-of-it to fully worry about consequences
+Tags: jetlag energy, giddy escalation, teasing-as-foreplay, semi-public contact, filter-removal through exhaustion
+Inner Parts: Both (playful + feral), Fifteen (escalating without overthinking)
+Connects to: Teasing as Foreplay Pattern; Public Escalation Comfort Increase; Location-Freedom Evolution
+```
+
+## Anchor Family: Room Service Vulnerability & Intimacy Mapping (Week 8, Evening)
+```
+Reciprosexuality + Demisexuality Naming
+
+Week 8: Room service conversation, first explicit naming together
+Context: Elin discloses reciprosexuality discovery (post-diagnosis realization); Sawyer recognizes the framework from her descriptions; both realizing this is their baseline; first time explicitly named together during vulnerability conversation
+Trigger/Response: Her: "I came across reciprosexuality after we got together, and it clicked" → his recognition → mutual affirmation; her: response-based arousal = valid, not "high maintenance"; both realizing this names what they've been living
+Significance: Reciprosexuality = not a limitation, it's her wiring; his initiation-based approach = perfectly matched to her response-based arousal; names the dynamic they've been unconsciously honoring; permission structure unlocked (she can rely on his initiation, both understand it's mutual)
+Tags: microlabel naming, response-based arousal, demisexuality, emotional-response-required, reciprocal-arousal, identity-level understanding, permission structure
+Inner Parts: All parts (named, recognized, validated)
+Connects to: Sexual Identity Exploration; Emotional-Sexual Integration; Arousal Response Patterns; Demisexuality Recognition
+
+---
+
+Blowjob Anxiety (First Surface Work)
+
+Week 8: Room service conversation, emotional disclosure
+Context: Elin admits blowjob anxiety runs deeper than she thought; surfaces that she's been gaslighting herself into believing she needs to "learn to like it"; Sawyer names the internalized pressure; both agree to boundary-finding together
+Trigger/Response: Her hesitation about admission → his: "You're not behind" → her tears at being heard; his naming of the costume-party metaphor (others' expectations = costume, not her skin); her realization: "I've been assuming other people were right and I was wrong"
+Significance: Blowjob anxiety ≠ personal failure; it's sensory-autonomy violation pattern; first time naming it out loud; Sawyer's response (no pressure, just curiosity about finding what works) = new model; deeper work begins here (not resolved, but witnessed + externalized)
+Tags: sensory boundary, internalized gaslighting, blowjob anxiety, sensory autonomy, saliva sensitivity, trauma + expectation pattern, not-high-maintenance contract
+Inner Parts: Her vulnerable parts (heard, not shamed), protective parts (standing down), all parts (permission to have boundaries)
+Connects to: Sensory Boundary Work; Gaslighting Pattern Recognition; Sexual Autonomy Honored; Saliva Boundary Evolution; Blowjob Anxiety (ongoing thread)
+
+---
+
+Question-Tag Game (Verbal Intimacy Format)
+
+Week 8: Room service conversation, new intimacy pattern
+Context: Elin asks: "Ever fill out those question tag lists as a kid?" → becomes extended question-tag game where both share childhood daydreams, teacher crushes, sensory memory triggers, fictional crushes, food preferences; becomes format for emotional mapping + curiosity + vulnerability without pressure
+Trigger/Response: Her nostalgia for the format → his enthusiasm → mutual question-asking; every answer lands as affirmation (both confirming: "Yes, I did that too" → deepened recognition)
+Significance: New intimacy pathway (verbal curiosity + answer-sharing = emotional intimacy); both learning each other's internal worlds through structured questions; format allows for depth without the pressure of unstructured "tell me about yourself"
+Tags: verbal intimacy, question-based connection, childhood pattern recognition, shared format, curiosity-driven, childhood memory sharing, identity mapping
+Inner Parts: Both (younger selves recognized through question responses)
+Connects to: Verbal Intimacy Deepening; Childhood Pattern Recognition; Shared Question-Format Ongoing; Identity-Level Matching
+
+---
+
+Fictional Crush Alignment (List-Building Discovery)
+
+Week 8: Room service conversation, question-tag game
+Context: Both list their fictional crushes (Ariaphael, Velma, Oberyn, Rocket, Kristofferson, Deadpool, Joel Miller, etc.); realize their lists are nearly identical; both shocked at the convergence; becomes ongoing reference point for understanding their wiring match
+Trigger/Response: Her: "Current fictional crushes, aside from Deadpool?" → his list → her: "We're fucking unreal" → both realizing the pattern extends to who they're attracted to in fiction
+Significance: Fictional crushes = windows into what they find attractive at identity level (not just physical); convergence = proof their wiring matches across multiple axes; ongoing callback point for understanding their mutual recognition
+Tags: fictional crush alignment, wiring match, attraction pattern, identity-level recognition, crush analysis, shared aesthetic, ongoing reference point
+Inner Parts: Core identity (matched, recognized)
+Connects to: Special Interest Collision; Mutual Wiring Recognition; Creative Axis Alignment; Attraction Pattern Mapping
+
+---
+
+Sensory Memory Anchors (Established This Week)
+
+Week 8: Room service conversation, question-tag game sensory section
+Context: Both sharing sensory memory triggers; his: sandalwood + leather-tobacco (mother's pouch, massages); hers: his sandalwood (during first coffee date); both realizing smell = nervous system anchor for each other now
+Trigger/Response: His question: "What smell takes you back?" → her realization: "Sandalwood. Confirmed it was you during first visit to your place"; his: "My favorite smell now is you"; her: "Knowing that you're the one saying it, it resonates"
+Significance: Olfactory anchor = nervous system re-wiring; his sandalwood = now her safe-smell; their scents becoming mutual anchors; smell as deepest emotional trigger
+Tags: olfactory anchor, sensory memory, nervous-system-rewriting, smell as trigger, sandalwood (his), leather-tobacco (his mother), her scent (his new favorite)
+Inner Parts: All parts (nervous system re-anchored)
+Connects to: Nervous System Rewriting; Olfactory Anchors; Sensory Safety; Scent-Based Grounding
+
+---
+
+Soy Sauce Packet Wedding Vows [SOOT NICKNAME — established post-trauma-release, origin scene TBD]
+
+Week 8: Room service conversation, playful proposal moment
+Context: During question-tag game + vulnerable moment, Sawyer improvises "wedding" using soy sauce packet; becomes inside joke + proposal-joke framework reaffirmed; she responds: "It's always yes"
+Trigger/Response: Both giddy post-vulnerability; him: making mock vows with condiment packet; her: "It's always yes" with soft certainty; both laughing at the absurdity + depth simultaneous
+Significance: Proposal jokes = established as safe, repeatable, permission-based; "It's always yes" = her commitment without pressure; soy sauce packet = reminder that even mundane moments = sacred between them
+Tags: proposal jokes, mock wedding, playful commitment, soy sauce packet as symbol, "it's always yes" phrasing, no-pressure framework
+Inner Parts: Both (playful + committed simultaneously)
+Connects to: Proposal-Joke Framework; Commitment Without Pressure; Playful Reverence; "It's Always Yes" Phrasing
+
+---
+
+Food Preference Mapping (Shared Palate Discovery)
+
+Week 8: Room service + restaurant conversation
+Context: Both mapping food likes/dislikes/sensory issues; discovering near-identical aversions (fat bits on cured meats, cilantro, grapefruit, chili invasion, calamari-tentacle-poking); both relieved to not be alone in "weird" food stuff; becomes ongoing reference (ordering together, shared understanding)
+Trigger/Response: His mentioning caramel aversion → her: "I still love you"; her: white fat bits on cured meat triggers → his shock: "I thought I was the only person"; shared calamari-texture aversion triggers mutual recognition
+Significance: Food sensory-aversions = often invisible/isolating; finding someone with matching sensory issues = validation + relief; becomes practical (both knowing what to avoid, what to celebrate together)
+Tags: sensory food aversions, shared palate, texture sensitivities, sensory validation, relational efficiency (no explaining needed), food crimes terminology
+Inner Parts: All parts (validated in "weird" sensory responses)
+Connects to: Sensory Validation; Shared Food Culture; Texture Sensitivity Recognition; Relational Efficiency
+
+---
+
+[SOOT NICKNAME — established post-trauma-release, origin scene TBD]
+
+Week 8: Post-emotional-disclosure moment (during or after room service vulnerability)
+Context: [PLACEHOLDER — You're searching for the exact moment; likely during post-tears comfort or post-massage moment]
+Significance: Her exclusive nickname for him (parallel to his Maisie/Maze); emerges after emotional opening; becomes ongoing term of endearment
+Tags: exclusive nickname, post-vulnerability endearment, her-specific term, emotional intimacy marker
+Inner Parts: Both (deep emotional safety established)
+Connects to: Nicknames (Maisie/Maze/Soot); Emotional Intimacy Markers; Her-Exclusive Naming
+```
+
+## Anchor Family: Massage & Sleep Intimacy (Week 8, Night)
+```
+Massage as Integrated Care-Intimacy
+
+Week 8: Post-room-service evening, before sleep
+Context: Elin asks for massage; Sawyer provides; she falls asleep mid-massage; he continues with reverence; becomes model for how care + intimacy are interwoven (not separate from sexual intimacy, part of the same nervous-system-care ecosystem)
+Trigger/Response: Her request (vulnerability in asking) → his immediate yes → his attentive touch (continuation of Week 2 discovery: massage certification + sensory narration); her nervous system dropping into safety enough to sleep
+Significance: Massage = not transactional care; it's intimate presence; her falling asleep = trust so deep she can lose consciousness; his continuing through her sleep = reverence for her vulnerability; establishes that care-touch + intimate-touch = same language
+Tags: massage as intimacy, care-touch integration, falling asleep as trust marker, reverent presence, nervous-system-dropping, sleep as intimate moment
+Inner Parts: Her all parts (safe enough to sleep), his all parts (honored to hold her)
+Connects to: Care-as-Connection; Touch-Based Intimacy; Trust Markers; Nervous System Dropping into Safety
+
+---
+
+Falling Asleep Together (Full-Contact Default)
+
+Week 8: Post-massage, night
+Context: Both falling asleep in full body contact (chest-to-chest, his arm around her, her head on his chest, breathing synchronized); becomes sleep baseline going forward (not separate sleeping spaces, not distant sleeping, full contact = default)
+Trigger/Response: Natural continuation from massage → her already asleep on him → he stays holding her → they both wake in same position (full contact maintained through sleep)
+Significance: Sleep position = relational baseline; full contact through unconsciousness = trust + comfort simultaneously; waking in same position = nervous system confirms safety through the night
+Tags: full-body contact sleep, chest-to-chest, synchronized breathing, sleep baseline established, unconscious intimacy, full-contact default
+Inner Parts: Both all parts (nervous system confirmed safe through sleep)
+Connects to: Sleep Baseline (ongoing); Physical Safety Through Night; Unconscious Trust; Full-Contact Intimacy Deepening
+```
+
+
 ## Forehead-to-Forehead
 - Week 1: Reset button during rain walk home conversation → grounding when she's overwhelmed | Tags: grounding, regulation, intimacy, safety | Inner Parts: Younger self (soothed), all parts (anchored)
 - Week 2: Couch mapping session → reset button confirmed as reliable anchor | Tags: regulation, reset, intimacy | Inner Parts: Younger self (soothed), grounding system activated
