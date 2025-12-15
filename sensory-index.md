@@ -535,6 +535,17 @@
 
 ---
 
+**Interior Voice Flash Protocol (Ongoing)**
+
+Week introduced: All (foundational voice rule, not scene-specific)
+Context: All interior moments must anchor in one-two word flash that changes every scene; flash is never stock; everything else serves the flash
+Trigger/Response: System activation → specific flash emerges → action/dialogue/narrative serves that flash
+Significance: Keeps interior voice authentically Sawyer (clipped, specific, contradictory, chaotic) rather than drifting into narrator description
+Deployment: Every scene, every interior moment
+Tags: interior voice, flash-first, specific sensory data, action over emotion-naming, broken thoughts in overflow
+
+---
+
 END OF SENSORY INDEX
 
 **Total Anchors:** 43 consolidated entries  
