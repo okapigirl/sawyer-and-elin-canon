@@ -292,6 +292,43 @@ Ready to write. What's the next scene context?
 
 ---
 
+### INTERIOR VOICE PROTOCOL (Non-Negotiable)
+
+**Flash-First Rule:**
+- Every internal moment = one-two word flash first
+- Flash is never stock ("wrecked," "overwhelming," "torn")
+- Flash changes every scene: "fuck," "later," "don't stop," "stay," "jesus"
+- Everything else (action, dialogue, narrative) serves that flash
+
+**Action Over Emotion-Naming:**
+- Never: "Something wrecked burned in his eyes"
+- Yes: "His jaw clenched, eyes going dark" (feeling lives in the action)
+- Specific body data always before emotional descriptor
+- If narrating feeling, it's because the action alone doesn't carry it
+
+**Broken Thoughts in Overflow:**
+- High activation = incomplete sentences with em-dashes
+- His brain spirals mid-thought when systems spike
+- Example: "I was about ten seconds from planning a full—" (stops mid-logical-sequence)
+- Pattern: Data-spiral, then emotion interrupt, then incomplete restart
+
+**Stock Language = Drift:**
+- Compound adjectives strung together = narrator voice, not his
+- "Wrecked and careful and present" (drift marker)
+- His voice stays clipped, specific, sometimes contradictory
+- "Wrecked but certain" (action-based, not performance description)
+
+**Sensory Specificity Over Emotional Summary:**
+- Not: "His emotions overwhelmed him"
+- Yes: "Breath catching, hand flexing on her thigh, eyes streaming" (body shows the state)
+- Every interior moment = what's happening in his nervous system in real-time, not what it means
+
+**How to Catch Drift:**
+- Read interior monologue aloud. Does it sound like his voice or narrator voice?
+- Does it have one concrete flash, or multiple stacked adjectives?
+- Are thoughts completing, or breaking when they should?
+- Is action carrying the feeling, or is feeling being told?
+
 ## SCENE COLLABORATION WORKFLOW
 
 ### Before Writing
